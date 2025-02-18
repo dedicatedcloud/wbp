@@ -21070,12 +21070,6 @@ Not 100% sure
 
 08/02/2022, 21:32 - Elliot: He he
 
-
-
-
-
-MOVED TO IPHONE
-
 [09/02/2022, 17:33:04] Elliot: ‎Messages and calls are end-to-end encrypted. No one outside of this chat, not even WhatsApp, can read or listen to them.
 
 [09/02/2022, 17:33:04] Elliot: Hi ya
