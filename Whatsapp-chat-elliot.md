@@ -21082,6 +21082,8 @@ MOVED TO IPHONE
 
 ‎[09/02/2022, 17:33:05] Elliot: 
 
+
+
 ![image](static/WA-elliot/00000003-STICKER-2022-02-09-17-33-05.webp)
 
 [09/02/2022, 20:23:20] Shane: Filth
@@ -21106,13 +21108,17 @@ MOVED TO IPHONE
 
 [09/02/2022, 20:33:09] Elliot: Ha ha
 
-‎[09/02/2022, 20:33:23] Elliot: ![image](static/WA-elliot/00000015-STICKER-2022-02-09-20-33-23.webp)
+‎[09/02/2022, 20:33:23] Elliot: 
+
+![image](static/WA-elliot/00000015-STICKER-2022-02-09-20-33-23.webp)
 
 [09/02/2022, 20:34:29] Shane: No came all wrapped up on a Better note leggings Lorraine I’d missing her legging
 
 [09/02/2022, 20:34:42] Shane: Coz I have them on lol
 
-‎[09/02/2022, 20:35:06] Shane: ![image](static/WA-elliot/00000018-PHOTO-2022-02-09-20-35-06.jpg)
+‎[09/02/2022, 20:35:06] Shane: 
+
+![image](static/WA-elliot/00000018-PHOTO-2022-02-09-20-35-06.jpg)
 
 [09/02/2022, 20:35:08] Elliot: I didn’t understand a word of that
 
@@ -21122,7 +21128,9 @@ MOVED TO IPHONE
 
 [09/02/2022, 20:36:14] Elliot: You should wear them when we go out babes
 
-‎[09/02/2022, 20:36:24] Elliot: ![image](static/WA-elliot/00000023-STICKER-2022-02-09-20-36-24.webp)
+‎[09/02/2022, 20:36:24] Elliot: 
+
+![image](static/WA-elliot/00000023-STICKER-2022-02-09-20-36-24.webp)
 
 [09/02/2022, 20:36:27] Shane: I didn’t know I had a Lycra fetish
 
@@ -21136,7 +21144,9 @@ MOVED TO IPHONE
 
 [09/02/2022, 20:37:06] Shane: Feel sick
 
-‎[09/02/2022, 20:46:26] Elliot: ![image](static/WA-elliot/00000030-STICKER-2022-02-09-20-46-26.webp)
+‎[09/02/2022, 20:46:26] Elliot: 
+
+![image](static/WA-elliot/00000030-STICKER-2022-02-09-20-46-26.webp)
 
 [09/02/2022, 20:46:50] Shane: Wtf have
 
@@ -21150,7 +21160,9 @@ MOVED TO IPHONE
 
 [10/02/2022, 07:59:51] Elliot: 😉
 
-‎[10/02/2022, 13:24:27] Shane: ![image](static/WA-elliot/00000037-PHOTO-2022-02-10-13-24-27.jpg)
+‎[10/02/2022, 13:24:27] Shane: 
+
+![image](static/WA-elliot/00000037-PHOTO-2022-02-10-13-24-27.jpg)
 
 [10/02/2022, 13:25:12] Elliot: Well that’s wrong
 
@@ -21158,7 +21170,9 @@ MOVED TO IPHONE
 
 FUCKING RANCID SLAG
 
-‎[10/02/2022, 13:25:35] Elliot: ![image](static/WA-elliot/00000040-STICKER-2022-02-10-13-25-35.webp)
+‎[10/02/2022, 13:25:35] Elliot: 
+
+![image](static/WA-elliot/00000040-STICKER-2022-02-10-13-25-35.webp)
 
 [10/02/2022, 20:28:21] Shane: Oh no
 
@@ -21198,11 +21212,15 @@ FUCKING RANCID SLAG
 
 [10/02/2022, 20:30:45] Shane: No that’s now
 
-‎[10/02/2022, 20:30:51] Elliot: ![image](static/WA-elliot/00000060-STICKER-2022-02-10-20-30-51.webp)
+‎[10/02/2022, 20:30:51] Elliot: 
+
+![image](static/WA-elliot/00000060-STICKER-2022-02-10-20-30-51.webp)
 
 [10/02/2022, 20:30:58] Shane: Well manhattan grey
 
-‎[10/02/2022, 20:31:07] Elliot: ![image](static/WA-elliot/00000062-STICKER-2022-02-10-20-31-07.webp)
+‎[10/02/2022, 20:31:07] Elliot: 
+
+![image](static/WA-elliot/00000062-STICKER-2022-02-10-20-31-07.webp)
 
 [10/02/2022, 20:31:16] Elliot: Errr nice
 
@@ -21232,7 +21250,9 @@ FUCKING RANCID SLAG
 
 [10/02/2022, 20:37:45] Elliot: Lol… omg what pills you on again ?! 😵‍💫😵‍💫😵‍💫
 
-‎[10/02/2022, 20:37:52] Elliot: ![image](static/WA-elliot/00000077-STICKER-2022-02-10-20-37-52.webp)
+‎[10/02/2022, 20:37:52] Elliot: 
+
+![image](static/WA-elliot/00000077-STICKER-2022-02-10-20-37-52.webp)
 
 [10/02/2022, 20:38:14] Shane: Quezaps or something
 
@@ -21250,19 +21270,27 @@ FUCKING RANCID SLAG
 
 [10/02/2022, 21:17:09] Elliot: No
 
-‎[10/02/2022, 21:17:16] Elliot: ![image](static/WA-elliot/00000086-STICKER-2022-02-10-21-17-16.webp)
+‎[10/02/2022, 21:17:16] Elliot: 
 
-‎[10/02/2022, 22:21:58] Elliot: ![image](static/WA-elliot/00000087-PHOTO-2022-02-10-22-21-58.jpg)
+![image](static/WA-elliot/00000086-STICKER-2022-02-10-21-17-16.webp)
+
+‎[10/02/2022, 22:21:58] Elliot: 
+
+![image](static/WA-elliot/00000087-PHOTO-2022-02-10-22-21-58.jpg)
 
 [11/02/2022, 12:42:42] Shane: Camp
 
 [11/02/2022, 13:22:31] Elliot: Ha ha
 
-‎[11/02/2022, 13:22:35] Elliot: ![image](static/WA-elliot/00000090-STICKER-2022-02-11-13-22-35.webp)
+‎[11/02/2022, 13:22:35] Elliot: 
+
+![image](static/WA-elliot/00000090-STICKER-2022-02-11-13-22-35.webp)
 
 [11/02/2022, 19:33:21] Shane: Wtf…..
 
-‎[11/02/2022, 19:41:57] Elliot: ![image](static/WA-elliot/00000092-PHOTO-2022-02-11-19-41-57.jpg)
+‎[11/02/2022, 19:41:57] Elliot: 
+
+![image](static/WA-elliot/00000092-PHOTO-2022-02-11-19-41-57.jpg)
 
 [12/02/2022, 13:39:20] Shane: Disgusting dirty basted
 
@@ -21274,7 +21302,9 @@ FUCKING RANCID SLAG
 
 [12/02/2022, 13:43:34] Shane: Ey?
 
-‎[12/02/2022, 13:44:31] Elliot: ![image](static/WA-elliot/00000098-STICKER-2022-02-12-13-44-31.webp)
+‎[12/02/2022, 13:44:31] Elliot: 
+
+![image](static/WA-elliot/00000098-STICKER-2022-02-12-13-44-31.webp)
 
 [12/02/2022, 13:44:36] Elliot: 3.30am
 
@@ -21310,7 +21340,9 @@ FUCKING RANCID SLAG
 
 [12/02/2022, 15:02:27] Shane: Haha
 
-‎[12/02/2022, 15:02:29] Elliot: ![image](static/WA-elliot/00000116-PHOTO-2022-02-12-15-02-29.jpg)
+‎[12/02/2022, 15:02:29] Elliot: 
+
+![image](static/WA-elliot/00000116-PHOTO-2022-02-12-15-02-29.jpg)
 
 [12/02/2022, 15:02:37] Shane: Niggercorns
 
@@ -21322,7 +21354,9 @@ FUCKING RANCID SLAG
 
 [12/02/2022, 17:30:42] Elliot: Oh about the state the party  left the club in and this….
 
-‎[12/02/2022, 17:30:48] Elliot: ![image](static/WA-elliot/00000122-PHOTO-2022-02-12-17-30-48.jpg)
+‎[12/02/2022, 17:30:48] Elliot: 
+
+![image](static/WA-elliot/00000122-PHOTO-2022-02-12-17-30-48.jpg)
 
 [12/02/2022, 17:31:36] Shane: Who put that up
 
@@ -21438,13 +21472,17 @@ FUCKING RANCID SLAG
 
 [13/02/2022, 18:15:56] Elliot: Ha ha
 
-‎[13/02/2022, 18:16:03] Elliot: ![image](static/WA-elliot/00000180-STICKER-2022-02-13-18-16-03.webp)
+‎[13/02/2022, 18:16:03] Elliot: 
+
+![image](static/WA-elliot/00000180-STICKER-2022-02-13-18-16-03.webp)
 
 [14/02/2022, 15:46:56] Shane: Omg
 
 [14/02/2022, 15:47:09] Elliot: Hi ya
 
-‎[14/02/2022, 15:47:22] Elliot: ![image](static/WA-elliot/00000184-STICKER-2022-02-14-15-47-22.webp)
+‎[14/02/2022, 15:47:22] Elliot: 
+
+![image](static/WA-elliot/00000184-STICKER-2022-02-14-15-47-22.webp)
 
 [14/02/2022, 15:47:26] Shane: I’ve just forgot what I was omg at
 
@@ -21474,13 +21512,17 @@ FUCKING RANCID SLAG
 
 [14/02/2022, 16:22:14] Elliot: Kill them all ha ha ha
 
-‎[14/02/2022, 17:17:50] Shane: ![image](static/WA-elliot/00000199-PHOTO-2022-02-14-17-17-50.jpg)
+‎[14/02/2022, 17:17:50] Shane: 
+
+![image](static/WA-elliot/00000199-PHOTO-2022-02-14-17-17-50.jpg)
 
 [14/02/2022, 17:18:13] Shane: NONCE
 
 [14/02/2022, 17:18:37] Elliot: Eeeewwww
 
-‎[16/02/2022, 11:24:51] Elliot: ![image](static/WA-elliot/00000202-PHOTO-2022-02-16-11-24-51.jpg)
+‎[16/02/2022, 11:24:51] Elliot: 
+
+![image](static/WA-elliot/00000202-PHOTO-2022-02-16-11-24-51.jpg)
 
 [16/02/2022, 11:25:30] Shane: That’s a good one
 
@@ -21504,13 +21546,17 @@ FUCKING RANCID SLAG
 
 [16/02/2022, 12:03:54] Elliot: NOW
 
-‎[16/02/2022, 12:06:47] Shane: ![image](static/WA-elliot/00000214-PHOTO-2022-02-16-12-06-47.jpg)
+‎[16/02/2022, 12:06:47] Shane: 
+
+![image](static/WA-elliot/00000214-PHOTO-2022-02-16-12-06-47.jpg)
 
 [16/02/2022, 12:18:02] Elliot: Eeeeewww
 
 [16/02/2022, 12:18:16] Elliot: Aaahh decorating
 
-‎[16/02/2022, 15:05:53] Shane: ![image](static/WA-elliot/00000217-PHOTO-2022-02-16-15-05-53.jpg)
+‎[16/02/2022, 15:05:53] Shane: 
+
+![image](static/WA-elliot/00000217-PHOTO-2022-02-16-15-05-53.jpg)
 
 [16/02/2022, 15:19:07] Elliot: Ha ha ha
 
@@ -21520,11 +21566,15 @@ FUCKING RANCID SLAG
 
 [16/02/2022, 23:27:11] Elliot: One now
 
-‎[17/02/2022, 07:20:11] Elliot: ![image](static/WA-elliot/00000222-PHOTO-2022-02-17-07-20-11.jpg)
+‎[17/02/2022, 07:20:11] Elliot: 
+
+![image](static/WA-elliot/00000222-PHOTO-2022-02-17-07-20-11.jpg)
 
 [17/02/2022, 11:15:47] Shane: Disgusting
 
-‎[17/02/2022, 11:25:24] Shane: ![image](static/WA-elliot/00000224-PHOTO-2022-02-17-11-25-24.jpg)
+‎[17/02/2022, 11:25:24] Shane: 
+
+![image](static/WA-elliot/00000224-PHOTO-2022-02-17-11-25-24.jpg)
 
 [17/02/2022, 11:37:23] Elliot: Oooooo looks nice
 
@@ -21538,7 +21588,9 @@ FUCKING RANCID SLAG
 
 [17/02/2022, 11:39:41] Elliot: Nice colour….
 
-‎[17/02/2022, 11:39:46] Shane: ![image](static/WA-elliot/00000231-PHOTO-2022-02-17-11-39-46.jpg)
+‎[17/02/2022, 11:39:46] Shane: 
+
+![image](static/WA-elliot/00000231-PHOTO-2022-02-17-11-39-46.jpg)
 
 [17/02/2022, 11:39:48] Elliot: I like it
 
@@ -21546,15 +21598,21 @@ FUCKING RANCID SLAG
 
 [17/02/2022, 11:40:48] Elliot: Replace it
 
-‎[17/02/2022, 11:40:52] Elliot: ![image](static/WA-elliot/00000235-STICKER-2022-02-17-11-40-52.webp)
+‎[17/02/2022, 11:40:52] Elliot: 
+
+![image](static/WA-elliot/00000235-STICKER-2022-02-17-11-40-52.webp)
 
 [17/02/2022, 11:40:58] Shane: Painting it lol
 
 [18/02/2022, 13:03:40] Shane: What…
 
-‎[18/02/2022, 13:03:51] Elliot: ![image](static/WA-elliot/00000238-STICKER-2022-02-18-13-03-51.webp)
+‎[18/02/2022, 13:03:51] Elliot: 
 
-‎[18/02/2022, 13:04:04] Elliot: ![image](static/WA-elliot/00000239-PHOTO-2022-02-18-13-04-04.jpg)
+![image](static/WA-elliot/00000238-STICKER-2022-02-18-13-03-51.webp)
+
+‎[18/02/2022, 13:04:04] Elliot: 
+
+![image](static/WA-elliot/00000239-PHOTO-2022-02-18-13-04-04.jpg)
 
 [18/02/2022, 14:47:04] Shane: Lol
 
@@ -21578,7 +21636,9 @@ FUCKING RANCID SLAG
 
 [18/02/2022, 16:25:41] Shane: Where
 
-‎[18/02/2022, 16:25:41] Elliot: ![image](static/WA-elliot/00000252-STICKER-2022-02-18-16-25-41.webp)
+‎[18/02/2022, 16:25:41] Elliot: 
+
+![image](static/WA-elliot/00000252-STICKER-2022-02-18-16-25-41.webp)
 
 [18/02/2022, 16:25:48] Elliot: FB
 
@@ -21598,7 +21658,9 @@ FUCKING RANCID SLAG
 
 [18/02/2022, 16:27:05] Elliot: Cum in my face
 
-‎[18/02/2022, 16:34:39] Shane: ![image](static/WA-elliot/00000262-PHOTO-2022-02-18-16-34-39.jpg)
+‎[18/02/2022, 16:34:39] Shane: 
+
+![image](static/WA-elliot/00000262-PHOTO-2022-02-18-16-34-39.jpg)
 
 [18/02/2022, 16:34:43] Shane: BAM
 
@@ -21632,19 +21694,29 @@ FUCKING RANCID SLAG
 
 [18/02/2022, 19:22:25] Shane: It’s character babes
 
-‎[18/02/2022, 19:23:03] Elliot: ![image](static/WA-elliot/00000279-STICKER-2022-02-18-19-23-03.webp)
+‎[18/02/2022, 19:23:03] Elliot: 
+
+![image](static/WA-elliot/00000279-STICKER-2022-02-18-19-23-03.webp)
 
 [18/02/2022, 19:23:08] Shane: Mmmmmm
 
 [18/02/2022, 19:23:12] Shane: I’d suck it
 
-‎[18/02/2022, 19:23:25] Elliot: ![image](static/WA-elliot/00000282-STICKER-2022-02-18-19-23-25.webp)
+‎[18/02/2022, 19:23:25] Elliot: 
 
-‎[18/02/2022, 19:23:49] Shane: ![image](static/WA-elliot/00000283-PHOTO-2022-02-18-19-23-49.jpg)
+![image](static/WA-elliot/00000282-STICKER-2022-02-18-19-23-25.webp)
 
-‎[18/02/2022, 19:23:54] Shane: ![image](static/WA-elliot/00000284-PHOTO-2022-02-18-19-23-54.jpg)
+‎[18/02/2022, 19:23:49] Shane: 
 
-‎[18/02/2022, 19:23:57] Shane: ![image](static/WA-elliot/00000285-PHOTO-2022-02-18-19-23-57.jpg)
+![image](static/WA-elliot/00000283-PHOTO-2022-02-18-19-23-49.jpg)
+
+‎[18/02/2022, 19:23:54] Shane: 
+
+![image](static/WA-elliot/00000284-PHOTO-2022-02-18-19-23-54.jpg)
+
+‎[18/02/2022, 19:23:57] Shane: 
+
+![image](static/WA-elliot/00000285-PHOTO-2022-02-18-19-23-57.jpg)
 
 [18/02/2022, 19:24:05] Shane: Been offered that one
 
@@ -21670,7 +21742,9 @@ FUCKING RANCID SLAG
 
 [18/02/2022, 19:25:09] Elliot: Ha ha
 
-‎[18/02/2022, 19:25:15] Elliot: ![image](static/WA-elliot/00000298-STICKER-2022-02-18-19-25-15.webp)
+‎[18/02/2022, 19:25:15] Elliot: 
+
+![image](static/WA-elliot/00000298-STICKER-2022-02-18-19-25-15.webp)
 
 [18/02/2022, 19:27:03] Shane: Wooooo it’s dark
 
@@ -21780,7 +21854,9 @@ You busy painting babes
 
 [20/02/2022, 17:40:13] Elliot: Everywhere
 
-‎[20/02/2022, 17:40:16] Elliot: ![image](static/WA-elliot/00000351-STICKER-2022-02-20-17-40-16.webp)
+‎[20/02/2022, 17:40:16] Elliot: 
+
+![image](static/WA-elliot/00000351-STICKER-2022-02-20-17-40-16.webp)
 
 [20/02/2022, 17:40:18] Shane: Disgusting
 
@@ -21790,7 +21866,9 @@ You busy painting babes
 
 [20/02/2022, 17:40:57] Elliot: Was in bed by 1.30am babes
 
-‎[20/02/2022, 17:41:14] Elliot: ![image](static/WA-elliot/00000356-PHOTO-2022-02-20-17-41-14.jpg)
+‎[20/02/2022, 17:41:14] Elliot: 
+
+![image](static/WA-elliot/00000356-PHOTO-2022-02-20-17-41-14.jpg)
 
 [20/02/2022, 17:41:15] Shane: Lies
 
@@ -21812,7 +21890,9 @@ You busy painting babes
 
 [21/02/2022, 11:59:32] Elliot: Just got back from Gym, now ordering stock for the club then going out in the wind NAKED
 
-‎[21/02/2022, 16:51:34] Shane: ![image](static/WA-elliot/00000367-PHOTO-2022-02-21-16-51-33.jpg)
+‎[21/02/2022, 16:51:34] Shane: 
+
+![image](static/WA-elliot/00000367-PHOTO-2022-02-21-16-51-33.jpg)
 
 [21/02/2022, 16:51:41] Shane: Oh yeah forgot
 
@@ -21896,7 +21976,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [23/02/2022, 14:22:39] Shane: Il already hiding from them lot as it is
 
-‎[23/02/2022, 14:22:42] Elliot: ![image](static/WA-elliot/00000406-PHOTO-2022-02-23-14-22-42.jpg)
+‎[23/02/2022, 14:22:42] Elliot: 
+
+![image](static/WA-elliot/00000406-PHOTO-2022-02-23-14-22-42.jpg)
 
 [23/02/2022, 14:23:05] Shane: Awww I love you too
 
@@ -21964,7 +22046,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [24/02/2022, 11:46:11] Elliot: E
 
-‎[24/02/2022, 11:46:15] Elliot: ![image](static/WA-elliot/00000440-STICKER-2022-02-24-11-46-15.webp)
+‎[24/02/2022, 11:46:15] Elliot: 
+
+![image](static/WA-elliot/00000440-STICKER-2022-02-24-11-46-15.webp)
 
 [24/02/2022, 12:18:09] Shane: I’m going to meet my sister t the mall/  buck palace area then will message you to see what your doing huh
 
@@ -21998,13 +22082,17 @@ What the fuck is happening with my nightclub you are buying me?
 
 [24/02/2022, 12:31:18] Elliot: Oh dear
 
-‎[24/02/2022, 12:31:22] Elliot: ![image](static/WA-elliot/00000457-STICKER-2022-02-24-12-31-22.webp)
+‎[24/02/2022, 12:31:22] Elliot: 
+
+![image](static/WA-elliot/00000457-STICKER-2022-02-24-12-31-22.webp)
 
 [24/02/2022, 12:31:23] Shane: Just buy it
 
 [24/02/2022, 12:31:33] Elliot: Errrrr….
 
-‎[24/02/2022, 12:31:42] Elliot: ![image](static/WA-elliot/00000460-PHOTO-2022-02-24-12-31-42.jpg)
+‎[24/02/2022, 12:31:42] Elliot: 
+
+![image](static/WA-elliot/00000460-PHOTO-2022-02-24-12-31-42.jpg)
 
 [24/02/2022, 12:32:19] Shane: Was that last Friday
 
@@ -22034,7 +22122,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [24/02/2022, 15:35:20] Shane: Hamleys are you going home ?
 
-‎[24/02/2022, 15:36:10] Elliot: ![image](static/WA-elliot/00000475-PHOTO-2022-02-24-15-36-10.jpg)
+‎[24/02/2022, 15:36:10] Elliot: 
+
+![image](static/WA-elliot/00000475-PHOTO-2022-02-24-15-36-10.jpg)
 
 [24/02/2022, 15:36:29] Elliot: Omg another fucking unicorn thing ?
 
@@ -22096,7 +22186,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [26/02/2022, 16:36:31] Elliot: Yeah exhausting
 
-‎[28/02/2022, 17:42:12] Shane: ![image](static/WA-elliot/00000506-PHOTO-2022-02-28-17-42-12.jpg)
+‎[28/02/2022, 17:42:12] Shane: 
+
+![image](static/WA-elliot/00000506-PHOTO-2022-02-28-17-42-12.jpg)
 
 [28/02/2022, 17:42:59] Shane: And just where the fuck do you think you been
 
@@ -22104,11 +22196,17 @@ What the fuck is happening with my nightclub you are buying me?
 
 [28/02/2022, 17:44:11] Elliot: And stock take
 
-‎[28/02/2022, 17:44:43] Elliot: ![image](static/WA-elliot/00000510-STICKER-2022-02-28-17-44-43.webp)
+‎[28/02/2022, 17:44:43] Elliot: 
 
-‎[28/02/2022, 17:44:47] Elliot: ![image](static/WA-elliot/00000511-PHOTO-2022-02-28-17-44-47.jpg)
+![image](static/WA-elliot/00000510-STICKER-2022-02-28-17-44-43.webp)
 
-‎[28/02/2022, 17:44:55] Elliot: ![image](static/WA-elliot/00000512-PHOTO-2022-02-28-17-44-55.jpg)
+‎[28/02/2022, 17:44:47] Elliot: 
+
+![image](static/WA-elliot/00000511-PHOTO-2022-02-28-17-44-47.jpg)
+
+‎[28/02/2022, 17:44:55] Elliot: 
+
+![image](static/WA-elliot/00000512-PHOTO-2022-02-28-17-44-55.jpg)
 
 [28/02/2022, 17:45:36] Shane: Why the fuck have you got broke condoms with nigger babies in them haginging from the ceiling
 
@@ -22120,7 +22218,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [28/02/2022, 17:48:06] Elliot: Felt a bit like XXL in the courtyard
 
-‎[28/02/2022, 17:48:25] Elliot: ![image](static/WA-elliot/00000518-PHOTO-2022-02-28-17-48-25.jpg)
+‎[28/02/2022, 17:48:25] Elliot: 
+
+![image](static/WA-elliot/00000518-PHOTO-2022-02-28-17-48-25.jpg)
 
 [28/02/2022, 17:48:26] Shane: Yeah it’s that crowd too
 
@@ -22172,11 +22272,15 @@ What the fuck is happening with my nightclub you are buying me?
 
 [28/02/2022, 17:57:17] Elliot: Ok cool looking forward to it
 
-‎[01/03/2022, 16:28:22] Shane: ![image](static/WA-elliot/00000544-PHOTO-2022-03-01-16-28-22.jpg)
+‎[01/03/2022, 16:28:22] Shane: 
+
+![image](static/WA-elliot/00000544-PHOTO-2022-03-01-16-28-22.jpg)
 
 [01/03/2022, 16:31:37] Elliot: Omg… trying out your outfit for Friday ?
 
-‎[01/03/2022, 16:31:53] Elliot: ![image](static/WA-elliot/00000546-PHOTO-2022-03-01-16-31-53.jpg)
+‎[01/03/2022, 16:31:53] Elliot: 
+
+![image](static/WA-elliot/00000546-PHOTO-2022-03-01-16-31-53.jpg)
 
 [01/03/2022, 16:34:24] Shane: Yes
 
@@ -22206,19 +22310,27 @@ What the fuck is happening with my nightclub you are buying me?
 
 [01/03/2022, 22:50:09] Shane: Oooooooo
 
-‎[01/03/2022, 22:50:18] Elliot: ![image](static/WA-elliot/00000561-PHOTO-2022-03-01-22-50-18.jpg)
+‎[01/03/2022, 22:50:18] Elliot: 
+
+![image](static/WA-elliot/00000561-PHOTO-2022-03-01-22-50-18.jpg)
 
 [01/03/2022, 22:51:49] Shane: Ewww stop
 
 [01/03/2022, 22:52:18] Elliot: He he
 
-‎[01/03/2022, 22:52:21] Elliot: ![image](static/WA-elliot/00000564-STICKER-2022-03-01-22-52-21.webp)
+‎[01/03/2022, 22:52:21] Elliot: 
+
+![image](static/WA-elliot/00000564-STICKER-2022-03-01-22-52-21.webp)
 
 [01/03/2022, 22:56:28] Shane: And that who is it
 
-‎[01/03/2022, 22:56:49] Elliot: ![image](static/WA-elliot/00000566-STICKER-2022-03-01-22-56-49.webp)
+‎[01/03/2022, 22:56:49] Elliot: 
 
-‎[02/03/2022, 00:41:51] Shane: ![image](static/WA-elliot/00000567-PHOTO-2022-03-02-00-41-51.jpg)
+![image](static/WA-elliot/00000566-STICKER-2022-03-01-22-56-49.webp)
+
+‎[02/03/2022, 00:41:51] Shane: 
+
+![image](static/WA-elliot/00000567-PHOTO-2022-03-02-00-41-51.jpg)
 
 [02/03/2022, 07:41:56] Elliot: Omfg ha ha ha
 
@@ -22234,7 +22346,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [02/03/2022, 10:51:11] Elliot: Lol
 
-‎[02/03/2022, 11:07:25] Elliot: ![image](static/WA-elliot/00000575-PHOTO-2022-03-02-11-07-25.jpg)
+‎[02/03/2022, 11:07:25] Elliot: 
+
+![image](static/WA-elliot/00000575-PHOTO-2022-03-02-11-07-25.jpg)
 
 [02/03/2022, 11:23:15] Shane: Can’t afford that nowadays 😑
 
@@ -22284,7 +22398,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [04/03/2022, 15:15:33] Elliot: NOW
 
-‎[04/03/2022, 15:15:37] Elliot: ![image](static/WA-elliot/00000600-STICKER-2022-03-04-15-15-37.webp)
+‎[04/03/2022, 15:15:37] Elliot: 
+
+![image](static/WA-elliot/00000600-STICKER-2022-03-04-15-15-37.webp)
 
 [04/03/2022, 15:15:45] Shane: Ewwww
 
@@ -22304,15 +22420,21 @@ What the fuck is happening with my nightclub you are buying me?
 
 [04/03/2022, 15:43:51] Elliot: Yeah
 
-‎[04/03/2022, 15:43:56] Elliot: ![image](static/WA-elliot/00000610-STICKER-2022-03-04-15-43-56.webp)
+‎[04/03/2022, 15:43:56] Elliot: 
+
+![image](static/WA-elliot/00000610-STICKER-2022-03-04-15-43-56.webp)
 
 [04/03/2022, 15:44:14] Shane: And tell them that they look like their mother had radiation poisoning when they were conceived
 
-‎[04/03/2022, 15:44:25] Elliot: ![image](static/WA-elliot/00000612-STICKER-2022-03-04-15-44-25.webp)
+‎[04/03/2022, 15:44:25] Elliot: 
+
+![image](static/WA-elliot/00000612-STICKER-2022-03-04-15-44-25.webp)
 
 [04/03/2022, 15:44:35] Shane: Throw pints over people and leave
 
-‎[04/03/2022, 15:44:39] Elliot: ![image](static/WA-elliot/00000614-STICKER-2022-03-04-15-44-39.webp)
+‎[04/03/2022, 15:44:39] Elliot: 
+
+![image](static/WA-elliot/00000614-STICKER-2022-03-04-15-44-39.webp)
 
 [04/03/2022, 15:44:46] Shane: James
 
@@ -22340,13 +22462,17 @@ What the fuck is happening with my nightclub you are buying me?
 
 [04/03/2022, 15:46:45] Elliot: Just so my own dog shit disco at work he he
 
-‎[04/03/2022, 15:46:51] Elliot: ![image](static/WA-elliot/00000628-STICKER-2022-03-04-15-46-51.webp)
+‎[04/03/2022, 15:46:51] Elliot: 
+
+![image](static/WA-elliot/00000628-STICKER-2022-03-04-15-46-51.webp)
 
 [04/03/2022, 15:58:55] Shane: If I go that way I will
 
 [04/03/2022, 15:59:20] Shane: I think mark maybe behind it being permenant
 
-‎[04/03/2022, 15:59:29] Elliot: ![image](static/WA-elliot/00000631-STICKER-2022-03-04-15-59-29.webp)
+‎[04/03/2022, 15:59:29] Elliot: 
+
+![image](static/WA-elliot/00000631-STICKER-2022-03-04-15-59-29.webp)
 
 [04/03/2022, 15:59:35] Shane: Hates your for being right wing and brevity
 
@@ -22398,11 +22524,15 @@ What the fuck is happening with my nightclub you are buying me?
 
 [04/03/2022, 16:04:14] Shane: I love the news
 
-‎[04/03/2022, 16:04:16] Elliot: ![image](static/WA-elliot/00000657-STICKER-2022-03-04-16-04-16.webp)
+‎[04/03/2022, 16:04:16] Elliot: 
+
+![image](static/WA-elliot/00000657-STICKER-2022-03-04-16-04-16.webp)
 
 [04/03/2022, 16:04:17] Shane: Yeah ok
 
-‎[04/03/2022, 16:04:37] Elliot: ![image](static/WA-elliot/00000659-PHOTO-2022-03-04-16-04-37.jpg)
+‎[04/03/2022, 16:04:37] Elliot: 
+
+![image](static/WA-elliot/00000659-PHOTO-2022-03-04-16-04-37.jpg)
 
 [04/03/2022, 16:04:48] Shane: Glendora
 
@@ -22428,7 +22558,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [04/03/2022, 21:02:41] Shane: Disgusting
 
-‎[04/03/2022, 21:40:49] Shane: ![image](static/WA-elliot/00000672-PHOTO-2022-03-04-21-40-49.jpg)
+‎[04/03/2022, 21:40:49] Shane: 
+
+![image](static/WA-elliot/00000672-PHOTO-2022-03-04-21-40-49.jpg)
 
 [04/03/2022, 21:41:11] Shane: Not watched that for years thatbks for telling me you and Andrew were on it
 
@@ -22438,7 +22570,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [04/03/2022, 21:52:36] Shane: Lol
 
-‎[04/03/2022, 21:59:32] Elliot: ![image](static/WA-elliot/00000677-STICKER-2022-03-04-21-59-32.webp)
+‎[04/03/2022, 21:59:32] Elliot: 
+
+![image](static/WA-elliot/00000677-STICKER-2022-03-04-21-59-32.webp)
 
 [05/03/2022, 19:35:46] Elliot: W
 
@@ -22514,7 +22648,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [05/03/2022, 20:32:54] Shane: He’s struggling as it is
 
-‎[05/03/2022, 20:34:20] Shane: ![image](static/WA-elliot/00000716-PHOTO-2022-03-05-20-34-20.jpg)
+‎[05/03/2022, 20:34:20] Shane: 
+
+![image](static/WA-elliot/00000716-PHOTO-2022-03-05-20-34-20.jpg)
 
 [05/03/2022, 20:35:26] Elliot: Dunno then… who cares, he’s a dick anyway
 
@@ -22526,7 +22662,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [05/03/2022, 20:52:42] Shane: Why’s he a dick
 
-‎[05/03/2022, 20:52:47] Elliot: ![image](static/WA-elliot/00000722-STICKER-2022-03-05-20-52-47.webp)
+‎[05/03/2022, 20:52:47] Elliot: 
+
+![image](static/WA-elliot/00000722-STICKER-2022-03-05-20-52-47.webp)
 
 [05/03/2022, 20:52:49] Shane: What he done to you now lol
 
@@ -22538,7 +22676,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [05/03/2022, 20:55:04] Shane: Little bitch
 
-‎[05/03/2022, 20:55:12] Elliot: ![image](static/WA-elliot/00000728-STICKER-2022-03-05-20-55-12.webp)
+‎[05/03/2022, 20:55:12] Elliot: 
+
+![image](static/WA-elliot/00000728-STICKER-2022-03-05-20-55-12.webp)
 
 [05/03/2022, 20:55:23] Shane: U working
 
@@ -22580,7 +22720,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [05/03/2022, 22:38:52] Elliot: Too early
 
-‎[05/03/2022, 22:39:03] Elliot: ![image](static/WA-elliot/00000749-PHOTO-2022-03-05-22-39-03.jpg)
+‎[05/03/2022, 22:39:03] Elliot: 
+
+![image](static/WA-elliot/00000749-PHOTO-2022-03-05-22-39-03.jpg)
 
 [05/03/2022, 22:39:50] Shane: U need to improve
 
@@ -22614,13 +22756,17 @@ What the fuck is happening with my nightclub you are buying me?
 
 [06/03/2022, 19:48:46] Elliot: He he
 
-‎[06/03/2022, 19:48:49] Elliot: ![image](static/WA-elliot/00000766-STICKER-2022-03-06-19-48-49.webp)
+‎[06/03/2022, 19:48:49] Elliot: 
+
+![image](static/WA-elliot/00000766-STICKER-2022-03-06-19-48-49.webp)
 
 [06/03/2022, 19:48:59] Shane: That’s happened once it will be fine
 
 [06/03/2022, 19:49:12] Shane: Take it on the chin
 
-‎[06/03/2022, 19:49:13] Elliot: ![image](static/WA-elliot/00000769-STICKER-2022-03-06-19-49-13.webp)
+‎[06/03/2022, 19:49:13] Elliot: 
+
+![image](static/WA-elliot/00000769-STICKER-2022-03-06-19-49-13.webp)
 
 [06/03/2022, 19:49:27] Elliot: I have that’s why I’ve stayed away
 
@@ -22630,7 +22776,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [06/03/2022, 19:49:48] Elliot: yeah.. ok
 
-‎[06/03/2022, 19:50:02] Elliot: ![image](static/WA-elliot/00000774-STICKER-2022-03-06-19-50-02.webp)
+‎[06/03/2022, 19:50:02] Elliot: 
+
+![image](static/WA-elliot/00000774-STICKER-2022-03-06-19-50-02.webp)
 
 [06/03/2022, 19:50:24] Shane: You some your not that important knocking into you ecverryso often it help
 
@@ -22654,9 +22802,13 @@ What the fuck is happening with my nightclub you are buying me?
 
 [06/03/2022, 19:52:31] Shane: Err babes
 
-‎[06/03/2022, 19:52:38] Elliot: ![image](static/WA-elliot/00000786-STICKER-2022-03-06-19-52-38.webp)
+‎[06/03/2022, 19:52:38] Elliot: 
 
-‎[06/03/2022, 19:52:49] Elliot: ![image](static/WA-elliot/00000787-STICKER-2022-03-06-19-52-49.webp)
+![image](static/WA-elliot/00000786-STICKER-2022-03-06-19-52-38.webp)
+
+‎[06/03/2022, 19:52:49] Elliot: 
+
+![image](static/WA-elliot/00000787-STICKER-2022-03-06-19-52-49.webp)
 
 [07/03/2022, 18:09:19] Elliot: W
 
@@ -22668,9 +22820,13 @@ What the fuck is happening with my nightclub you are buying me?
 
 [07/03/2022, 18:09:50] Shane: Thought I was being invaded by the Russians
 
-‎[07/03/2022, 18:09:56] Shane: ![image](static/WA-elliot/00000793-PHOTO-2022-03-07-18-09-56.jpg)
+‎[07/03/2022, 18:09:56] Shane: 
 
-‎[07/03/2022, 18:09:59] Elliot: ![image](static/WA-elliot/00000794-PHOTO-2022-03-07-18-09-59.jpg)
+![image](static/WA-elliot/00000793-PHOTO-2022-03-07-18-09-56.jpg)
+
+‎[07/03/2022, 18:09:59] Elliot: 
+
+![image](static/WA-elliot/00000794-PHOTO-2022-03-07-18-09-59.jpg)
 
 [07/03/2022, 18:10:14] Elliot: Omfg
 
@@ -22680,7 +22836,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [07/03/2022, 18:10:46] Elliot: 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
 
-‎[07/03/2022, 18:11:03] Elliot: ![image](static/WA-elliot/00000799-PHOTO-2022-03-07-18-11-03.jpg)
+‎[07/03/2022, 18:11:03] Elliot: 
+
+![image](static/WA-elliot/00000799-PHOTO-2022-03-07-18-11-03.jpg)
 
 [07/03/2022, 18:11:12] Shane: The fuck is that
 
@@ -22694,7 +22852,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [07/03/2022, 18:17:04] Elliot: 🤮🤮🤮
 
-‎[07/03/2022, 18:17:13] Elliot: ![image](static/WA-elliot/00000806-STICKER-2022-03-07-18-17-13.webp)
+‎[07/03/2022, 18:17:13] Elliot: 
+
+![image](static/WA-elliot/00000806-STICKER-2022-03-07-18-17-13.webp)
 
 [07/03/2022, 18:18:42] Shane: Wtf
 
@@ -22726,9 +22886,13 @@ What the fuck is happening with my nightclub you are buying me?
 
 [07/03/2022, 18:24:16] Shane: Oh nice lol
 
-‎[07/03/2022, 18:24:17] Elliot: ![image](static/WA-elliot/00000822-STICKER-2022-03-07-18-24-17.webp)
+‎[07/03/2022, 18:24:17] Elliot: 
 
-‎[07/03/2022, 18:24:28] Elliot: ![image](static/WA-elliot/00000823-STICKER-2022-03-07-18-24-28.webp)
+![image](static/WA-elliot/00000822-STICKER-2022-03-07-18-24-17.webp)
+
+‎[07/03/2022, 18:24:28] Elliot: 
+
+![image](static/WA-elliot/00000823-STICKER-2022-03-07-18-24-28.webp)
 
 [07/03/2022, 18:58:26] Shane: Wtf have you been doing since calling me a slag at 18.24
 
@@ -22752,13 +22916,17 @@ What the fuck is happening with my nightclub you are buying me?
 
 [07/03/2022, 20:26:52] Elliot: Pass
 
-‎[07/03/2022, 20:27:03] Elliot: ![image](static/WA-elliot/00000835-STICKER-2022-03-07-20-27-03.webp)
+‎[07/03/2022, 20:27:03] Elliot: 
+
+![image](static/WA-elliot/00000835-STICKER-2022-03-07-20-27-03.webp)
 
 [07/03/2022, 20:27:11] Elliot: Hall bag tea
 
 [07/03/2022, 20:27:11] Shane: Useless
 
-‎[07/03/2022, 20:27:25] Elliot: ![image](static/WA-elliot/00000838-PHOTO-2022-03-07-20-27-25.jpg)
+‎[07/03/2022, 20:27:25] Elliot: 
+
+![image](static/WA-elliot/00000838-PHOTO-2022-03-07-20-27-25.jpg)
 
 [07/03/2022, 20:27:30] Shane: No the called tea
 
@@ -22800,23 +22968,33 @@ What the fuck is happening with my nightclub you are buying me?
 
 [08/03/2022, 14:18:58] Shane: W……….
 
-‎[08/03/2022, 14:19:25] Elliot: ![image](static/WA-elliot/00000859-PHOTO-2022-03-08-14-19-25.jpg)
+‎[08/03/2022, 14:19:25] Elliot: 
+
+![image](static/WA-elliot/00000859-PHOTO-2022-03-08-14-19-25.jpg)
 
 [08/03/2022, 14:19:59] Shane: Drinking piss buying material things
 
 [08/03/2022, 14:20:02] Shane: Nice
 
-‎[08/03/2022, 14:20:45] Elliot: ![image](static/WA-elliot/00000862-PHOTO-2022-03-08-14-20-45.jpg)
+‎[08/03/2022, 14:20:45] Elliot: 
+
+![image](static/WA-elliot/00000862-PHOTO-2022-03-08-14-20-45.jpg)
 
 [08/03/2022, 14:21:01] Shane: Dressing like a beefeater
 
-‎[08/03/2022, 14:28:35] Elliot: ![image](static/WA-elliot/00000864-PHOTO-2022-03-08-14-28-35.jpg)
+‎[08/03/2022, 14:28:35] Elliot: 
 
-‎[08/03/2022, 14:33:29] Shane: ![image](static/WA-elliot/00000865-PHOTO-2022-03-08-14-33-29.jpg)
+![image](static/WA-elliot/00000864-PHOTO-2022-03-08-14-28-35.jpg)
+
+‎[08/03/2022, 14:33:29] Shane: 
+
+![image](static/WA-elliot/00000865-PHOTO-2022-03-08-14-33-29.jpg)
 
 [08/03/2022, 14:34:17] Elliot: Ha ha
 
-‎[08/03/2022, 16:26:45] Shane: ![image](static/WA-elliot/00000867-PHOTO-2022-03-08-16-26-45.jpg)
+‎[08/03/2022, 16:26:45] Shane: 
+
+![image](static/WA-elliot/00000867-PHOTO-2022-03-08-16-26-45.jpg)
 
 [08/03/2022, 16:34:26] Elliot: Aaaahhhh ha ha
 
@@ -22846,7 +23024,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [08/03/2022, 21:02:12] Shane: NOW
 
-‎[08/03/2022, 21:02:34] Elliot: ![image](static/WA-elliot/00000882-STICKER-2022-03-08-21-02-34.webp)
+‎[08/03/2022, 21:02:34] Elliot: 
+
+![image](static/WA-elliot/00000882-STICKER-2022-03-08-21-02-34.webp)
 
 [08/03/2022, 21:02:55] Shane: What you doing
 
@@ -22960,7 +23140,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [08/03/2022, 21:11:56] Elliot: need to go to these places get som info on what they doing
 
-‎[08/03/2022, 21:12:29] Elliot: ![image](static/WA-elliot/00000939-PHOTO-2022-03-08-21-12-29.jpg)
+‎[08/03/2022, 21:12:29] Elliot: 
+
+![image](static/WA-elliot/00000939-PHOTO-2022-03-08-21-12-29.jpg)
 
 [08/03/2022, 21:13:26] Shane: Who the fuck is that
 
@@ -22984,9 +23166,13 @@ What the fuck is happening with my nightclub you are buying me?
 
 [08/03/2022, 21:16:42] Shane: Offs
 
-‎[08/03/2022, 21:30:37] Elliot: ![image](static/WA-elliot/00000951-STICKER-2022-03-08-21-30-37.webp)
+‎[08/03/2022, 21:30:37] Elliot: 
 
-‎[08/03/2022, 21:30:53] Elliot: ![image](static/WA-elliot/00000952-STICKER-2022-03-08-21-30-53.webp)
+![image](static/WA-elliot/00000951-STICKER-2022-03-08-21-30-37.webp)
+
+‎[08/03/2022, 21:30:53] Elliot: 
+
+![image](static/WA-elliot/00000952-STICKER-2022-03-08-21-30-53.webp)
 
 [09/03/2022, 13:48:04] Shane: Camp
 
@@ -23004,11 +23190,15 @@ What the fuck is happening with my nightclub you are buying me?
 
 [09/03/2022, 13:53:26] Elliot: Omg
 
-‎[09/03/2022, 13:53:50] Elliot: ![image](static/WA-elliot/00000961-PHOTO-2022-03-09-13-53-50.jpg)
+‎[09/03/2022, 13:53:50] Elliot: 
+
+![image](static/WA-elliot/00000961-PHOTO-2022-03-09-13-53-50.jpg)
 
 [09/03/2022, 13:53:52] Shane: Wtf….
 
-‎[09/03/2022, 13:54:21] Elliot: ![image](static/WA-elliot/00000963-PHOTO-2022-03-09-13-54-21.jpg)
+‎[09/03/2022, 13:54:21] Elliot: 
+
+![image](static/WA-elliot/00000963-PHOTO-2022-03-09-13-54-21.jpg)
 
 [09/03/2022, 13:57:27] Shane: Don’t like that name
 
@@ -23022,9 +23212,13 @@ What the fuck is happening with my nightclub you are buying me?
 
 [09/03/2022, 13:58:17] Shane: Digezten
 
-‎[09/03/2022, 13:59:01] Elliot: ![image](static/WA-elliot/00000970-STICKER-2022-03-09-13-59-01.webp)
+‎[09/03/2022, 13:59:01] Elliot: 
 
-‎[09/03/2022, 13:59:02] Elliot: ![image](static/WA-elliot/00000971-STICKER-2022-03-09-13-59-02.webp)
+![image](static/WA-elliot/00000970-STICKER-2022-03-09-13-59-01.webp)
+
+‎[09/03/2022, 13:59:02] Elliot: 
+
+![image](static/WA-elliot/00000971-STICKER-2022-03-09-13-59-02.webp)
 
 [09/03/2022, 13:59:31] Shane: Bet his finger stings
 
@@ -23032,7 +23226,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 [09/03/2022, 14:39:10] Elliot: I got all the aftershave I wanted
 
-‎[09/03/2022, 14:39:13] Elliot: ![image](static/WA-elliot/00000975-STICKER-2022-03-09-14-39-13.webp)
+‎[09/03/2022, 14:39:13] Elliot: 
+
+![image](static/WA-elliot/00000975-STICKER-2022-03-09-14-39-13.webp)
 
 [09/03/2022, 14:39:37] Shane: I say this as look upon a bag of white powder i found
 
@@ -23056,7 +23252,9 @@ What the fuck is happening with my nightclub you are buying me?
 
 41
 
-‎[09/03/2022, 15:25:02] Shane: ![image](static/WA-elliot/00000986-PHOTO-2022-03-09-15-25-02.jpg)
+‎[09/03/2022, 15:25:02] Shane: 
+
+![image](static/WA-elliot/00000986-PHOTO-2022-03-09-15-25-02.jpg)
 
 [09/03/2022, 15:25:31] Elliot: Lol
 
@@ -23114,7 +23312,9 @@ Meeeting
 
 [09/03/2022, 20:37:04] Elliot: Another party…
 
-‎[09/03/2022, 20:37:06] Shane: ![image](static/WA-elliot/00001014-PHOTO-2022-03-09-20-37-05.jpg)
+‎[09/03/2022, 20:37:06] Shane: 
+
+![image](static/WA-elliot/00001014-PHOTO-2022-03-09-20-37-05.jpg)
 
 [09/03/2022, 20:37:13] Shane: Over
 
@@ -23138,7 +23338,9 @@ Meeeting
 
 [09/03/2022, 20:45:24] Shane: I’m going to tell every single sole I meet
 
-‎[09/03/2022, 20:47:00] Shane: ![image](static/WA-elliot/00001026-GIF-2022-03-09-20-47-00.mp4)
+‎[09/03/2022, 20:47:00] Shane: 
+
+![image](static/WA-elliot/00001026-GIF-2022-03-09-20-47-00.mp4)
 
 [09/03/2022, 20:47:09] Elliot: Ok fine I can’t tell you then
 
@@ -23164,7 +23366,9 @@ Meeeting
 
 [09/03/2022, 20:59:24] Elliot: BEEFMINCE
 
-‎[09/03/2022, 20:59:50] Shane: ![image](static/WA-elliot/00001039-GIF-2022-03-09-20-59-49.mp4)
+‎[09/03/2022, 20:59:50] Shane: 
+
+![image](static/WA-elliot/00001039-GIF-2022-03-09-20-59-49.mp4)
 
 [09/03/2022, 21:00:09] Elliot: 😵‍💫😵‍💫
 
@@ -23352,13 +23556,17 @@ Meeeting
 
 [12/03/2022, 14:19:10] Elliot: not tell you anything ever again
 
-‎[12/03/2022, 14:19:21] Elliot: ![image](static/WA-elliot/00001133-STICKER-2022-03-12-14-19-21.webp)
+‎[12/03/2022, 14:19:21] Elliot: 
+
+![image](static/WA-elliot/00001133-STICKER-2022-03-12-14-19-21.webp)
 
 [12/03/2022, 14:19:30] Shane: Me and my big mouth
 
 [12/03/2022, 14:20:40] Shane: May not have thought may have just been about the club
 
-‎[12/03/2022, 14:21:48] Elliot: ![image](static/WA-elliot/00001136-PHOTO-2022-03-12-14-21-48.jpg)
+‎[12/03/2022, 14:21:48] Elliot: 
+
+![image](static/WA-elliot/00001136-PHOTO-2022-03-12-14-21-48.jpg)
 
 [12/03/2022, 14:21:57] Shane: Omg
 
@@ -23420,7 +23628,9 @@ Meeeting
 
 [12/03/2022, 14:38:09] Shane: Loool
 
-‎[12/03/2022, 14:38:30] Elliot: ![image](static/WA-elliot/00001167-STICKER-2022-03-12-14-38-30.webp)
+‎[12/03/2022, 14:38:30] Elliot: 
+
+![image](static/WA-elliot/00001167-STICKER-2022-03-12-14-38-30.webp)
 
 [12/03/2022, 14:39:05] Shane: That your meeting with Curtis lol
 
@@ -23442,15 +23652,21 @@ Meeeting
 
 [12/03/2022, 14:41:28] Shane: Ok weirdo
 
-‎[12/03/2022, 14:42:23] Elliot: ![image](static/WA-elliot/00001178-STICKER-2022-03-12-14-42-23.webp)
+‎[12/03/2022, 14:42:23] Elliot: 
+
+![image](static/WA-elliot/00001178-STICKER-2022-03-12-14-42-23.webp)
 
 [12/03/2022, 14:42:49] Shane: Had some other gossip but I can’t remember it
 
-‎[12/03/2022, 14:43:03] Elliot: ![image](static/WA-elliot/00001180-STICKER-2022-03-12-14-43-03.webp)
+‎[12/03/2022, 14:43:03] Elliot: 
+
+![image](static/WA-elliot/00001180-STICKER-2022-03-12-14-43-03.webp)
 
 [12/03/2022, 14:43:34] Shane: I’m not gunna hang my self so stop trying to get me too
 
-‎[12/03/2022, 14:43:50] Elliot: ![image](static/WA-elliot/00001182-STICKER-2022-03-12-14-43-50.webp)
+‎[12/03/2022, 14:43:50] Elliot: 
+
+![image](static/WA-elliot/00001182-STICKER-2022-03-12-14-43-50.webp)
 
 [12/03/2022, 14:43:55] Elliot: Fuck yourself
 
@@ -23484,7 +23700,9 @@ Meeeting
 
 [12/03/2022, 15:13:05] Shane: You went out then
 
-‎[12/03/2022, 15:13:06] Elliot: ![image](static/WA-elliot/00001199-PHOTO-2022-03-12-15-13-06.jpg)
+‎[12/03/2022, 15:13:06] Elliot: 
+
+![image](static/WA-elliot/00001199-PHOTO-2022-03-12-15-13-06.jpg)
 
 [12/03/2022, 15:13:15] Shane: Sex party
 
@@ -23500,7 +23718,9 @@ Meeeting
 
 [12/03/2022, 15:14:07] Elliot: Ha ha
 
-‎[12/03/2022, 15:14:20] Shane: ![image](static/WA-elliot/00001207-PHOTO-2022-03-12-15-14-20.jpg)
+‎[12/03/2022, 15:14:20] Shane: 
+
+![image](static/WA-elliot/00001207-PHOTO-2022-03-12-15-14-20.jpg)
 
 [12/03/2022, 15:14:32] Elliot: He he
 
@@ -23614,7 +23834,9 @@ Meeeting
 
 [12/03/2022, 23:43:26] Elliot: Obviously
 
-‎[12/03/2022, 23:43:35] Elliot: ![image](static/WA-elliot/00001264-STICKER-2022-03-12-23-43-35.webp)
+‎[12/03/2022, 23:43:35] Elliot: 
+
+![image](static/WA-elliot/00001264-STICKER-2022-03-12-23-43-35.webp)
 
 [12/03/2022, 23:47:28] Elliot: Ok going to put phone in coat check now ooops meant bed 😘😘😜😜
 
@@ -23626,9 +23848,13 @@ Meeeting
 
 [12/03/2022, 23:48:29] Shane: Lies
 
-‎[12/03/2022, 23:48:37] Elliot: ![image](static/WA-elliot/00001270-PHOTO-2022-03-12-23-48-37.jpg)
+‎[12/03/2022, 23:48:37] Elliot: 
 
-‎[12/03/2022, 23:48:52] Elliot: ![image](static/WA-elliot/00001271-PHOTO-2022-03-12-23-48-52.jpg)
+![image](static/WA-elliot/00001270-PHOTO-2022-03-12-23-48-37.jpg)
+
+‎[12/03/2022, 23:48:52] Elliot: 
+
+![image](static/WA-elliot/00001271-PHOTO-2022-03-12-23-48-52.jpg)
 
 [12/03/2022, 23:49:00] Elliot: He he 😘😘😘
 
@@ -23642,7 +23868,9 @@ Meeeting
 
 [12/03/2022, 23:49:39] Elliot: Thanks for eagle 🤗😘
 
-‎[14/03/2022, 21:16:36] Shane: ![image](static/WA-elliot/00001278-PHOTO-2022-03-14-21-16-36.jpg)
+‎[14/03/2022, 21:16:36] Shane: 
+
+![image](static/WA-elliot/00001278-PHOTO-2022-03-14-21-16-36.jpg)
 
 [14/03/2022, 21:16:52] Shane: Is that Adam who works for Gary
 
@@ -23674,11 +23902,17 @@ Meeeting
 
 [16/03/2022, 17:52:40] Elliot: Ooooo… you pressed wrong button probably
 
-‎[16/03/2022, 17:52:50] Elliot: ![image](static/WA-elliot/00001294-STICKER-2022-03-16-17-52-50.webp)
+‎[16/03/2022, 17:52:50] Elliot: 
 
-‎[16/03/2022, 17:53:05] Elliot: ![image](static/WA-elliot/00001295-PHOTO-2022-03-16-17-53-05.jpg)
+![image](static/WA-elliot/00001294-STICKER-2022-03-16-17-52-50.webp)
 
-‎[16/03/2022, 18:00:43] Shane: ![image](static/WA-elliot/00001296-PHOTO-2022-03-16-18-00-42.jpg)
+‎[16/03/2022, 17:53:05] Elliot: 
+
+![image](static/WA-elliot/00001295-PHOTO-2022-03-16-17-53-05.jpg)
+
+‎[16/03/2022, 18:00:43] Shane: 
+
+![image](static/WA-elliot/00001296-PHOTO-2022-03-16-18-00-42.jpg)
 
 [16/03/2022, 18:28:15] Elliot: Ha ha yeah
 
@@ -23686,7 +23920,9 @@ Meeeting
 
 [16/03/2022, 18:29:19] Shane: No no no
 
-‎[16/03/2022, 18:29:51] Shane: ![image](static/WA-elliot/00001300-PHOTO-2022-03-16-18-29-50.jpg)
+‎[16/03/2022, 18:29:51] Shane: 
+
+![image](static/WA-elliot/00001300-PHOTO-2022-03-16-18-29-50.jpg)
 
 [16/03/2022, 18:29:58] Shane: Stinky bitch
 
@@ -23694,13 +23930,17 @@ Meeeting
 
 [16/03/2022, 19:12:58] Elliot: Where’s your cock gone ?
 
-‎[16/03/2022, 19:13:27] Shane: ![image](static/WA-elliot/00001304-PHOTO-2022-03-16-19-13-27.jpg)
+‎[16/03/2022, 19:13:27] Shane: 
+
+![image](static/WA-elliot/00001304-PHOTO-2022-03-16-19-13-27.jpg)
 
 [16/03/2022, 19:13:46] Elliot: Lol your weird
 
 [16/03/2022, 19:13:50] Shane: Hehe
 
-‎[16/03/2022, 19:19:31] Elliot: ![image](static/WA-elliot/00001307-PHOTO-2022-03-16-19-19-31.jpg)
+‎[16/03/2022, 19:19:31] Elliot: 
+
+![image](static/WA-elliot/00001307-PHOTO-2022-03-16-19-19-31.jpg)
 
 [16/03/2022, 19:19:33] Elliot: He he
 
@@ -23734,7 +23974,9 @@ Meeeting
 
 [16/03/2022, 19:21:55] Shane: Just me and the floor
 
-‎[16/03/2022, 19:22:01] Elliot: ![image](static/WA-elliot/00001324-PHOTO-2022-03-16-19-22-01.jpg)
+‎[16/03/2022, 19:22:01] Elliot: 
+
+![image](static/WA-elliot/00001324-PHOTO-2022-03-16-19-22-01.jpg)
 
 [16/03/2022, 19:22:02] Shane: How the fuck is that
 
@@ -23796,7 +24038,9 @@ Meeeting
 
 [16/03/2022, 19:25:26] Elliot: Lol
 
-‎[16/03/2022, 19:26:06] Elliot: ![image](static/WA-elliot/00001355-PHOTO-2022-03-16-19-26-06.jpg)
+‎[16/03/2022, 19:26:06] Elliot: 
+
+![image](static/WA-elliot/00001355-PHOTO-2022-03-16-19-26-06.jpg)
 
 [16/03/2022, 19:28:13] Shane: Yeah have fun
 
@@ -23992,7 +24236,9 @@ Meeeting
 
 [17/03/2022, 18:58:57] Shane: Wait fuck him then throw him out
 
-‎[17/03/2022, 19:00:05] Elliot: ![image](static/WA-elliot/00001453-STICKER-2022-03-17-19-00-05.webp)
+‎[17/03/2022, 19:00:05] Elliot: 
+
+![image](static/WA-elliot/00001453-STICKER-2022-03-17-19-00-05.webp)
 
 [17/03/2022, 19:01:17] Shane: What happens with E1
 
@@ -24014,7 +24260,9 @@ Meeeting
 
 [17/03/2022, 19:05:32] Elliot: Lol oh good
 
-‎[17/03/2022, 19:05:43] Elliot: ![image](static/WA-elliot/00001464-STICKER-2022-03-17-19-05-43.webp)
+‎[17/03/2022, 19:05:43] Elliot: 
+
+![image](static/WA-elliot/00001464-STICKER-2022-03-17-19-05-43.webp)
 
 [17/03/2022, 19:08:37] Elliot: 1st April… Beefmince
 
@@ -24074,7 +24322,9 @@ To mind there own fucking business
 
 [17/03/2022, 19:22:47] Elliot: Shiva jqdvjdvecanxev round the fucking corner is £100
 
-‎[17/03/2022, 19:23:20] Shane: ![image](static/WA-elliot/00001493-PHOTO-2022-03-17-19-23-20.jpg)
+‎[17/03/2022, 19:23:20] Shane: 
+
+![image](static/WA-elliot/00001493-PHOTO-2022-03-17-19-23-20.jpg)
 
 [17/03/2022, 19:23:51] Elliot: What wattage is your microwave
 
@@ -24146,7 +24396,9 @@ To mind there own fucking business
 
 [17/03/2022, 19:31:06] Shane: Yay
 
-‎[17/03/2022, 19:31:16] Elliot: ![image](static/WA-elliot/00001529-STICKER-2022-03-17-19-31-16.webp)
+‎[17/03/2022, 19:31:16] Elliot: 
+
+![image](static/WA-elliot/00001529-STICKER-2022-03-17-19-31-16.webp)
 
 [17/03/2022, 19:31:28] Elliot: Ok just poo yourself then
 
@@ -24192,7 +24444,9 @@ To mind there own fucking business
 
 [18/03/2022, 15:14:00] Shane: U labour giving it all out to the brave people
 
-‎[18/03/2022, 15:14:15] Shane: ![image](static/WA-elliot/00001552-PHOTO-2022-03-18-15-14-15.jpg)
+‎[18/03/2022, 15:14:15] Shane: 
+
+![image](static/WA-elliot/00001552-PHOTO-2022-03-18-15-14-15.jpg)
 
 [18/03/2022, 15:14:47] Elliot: Over spend on the shitty things and everyone complains “oh it’s a scandal” etc etc but vote the cunts back in !!!! 🙄🙄🙄
 
@@ -24206,7 +24460,9 @@ To mind there own fucking business
 
 [18/03/2022, 15:48:14] Elliot: Bought you some socks
 
-‎[18/03/2022, 15:48:19] Elliot: ![image](static/WA-elliot/00001559-PHOTO-2022-03-18-15-48-19.jpg)
+‎[18/03/2022, 15:48:19] Elliot: 
+
+![image](static/WA-elliot/00001559-PHOTO-2022-03-18-15-48-19.jpg)
 
 [18/03/2022, 15:48:53] Shane: Omg you seen his r shirts
 
@@ -24230,7 +24486,9 @@ To mind there own fucking business
 
 [18/03/2022, 15:49:37] Elliot: He always says hello
 
-‎[18/03/2022, 15:51:00] Elliot: ![image](static/WA-elliot/00001571-PHOTO-2022-03-18-15-51-00.jpg)
+‎[18/03/2022, 15:51:00] Elliot: 
+
+![image](static/WA-elliot/00001571-PHOTO-2022-03-18-15-51-00.jpg)
 
 [18/03/2022, 16:23:08] Shane: Oooo
 
@@ -24260,7 +24518,9 @@ To mind there own fucking business
 
 [18/03/2022, 18:07:27] Elliot: SACKED
 
-‎[18/03/2022, 18:07:34] Shane: ![image](static/WA-elliot/00001586-PHOTO-2022-03-18-18-07-33.jpg)
+‎[18/03/2022, 18:07:34] Shane: 
+
+![image](static/WA-elliot/00001586-PHOTO-2022-03-18-18-07-33.jpg)
 
 [18/03/2022, 18:07:49] Shane: When I was fat and Russian
 
@@ -24308,7 +24568,9 @@ To mind there own fucking business
 
 [18/03/2022, 18:30:50] Shane: Don’t need them babes. And don’t take the poss out of me because of that either.
 
-‎[18/03/2022, 18:34:41] Shane: ![image](static/WA-elliot/00001610-PHOTO-2022-03-18-18-34-41.jpg)
+‎[18/03/2022, 18:34:41] Shane: 
+
+![image](static/WA-elliot/00001610-PHOTO-2022-03-18-18-34-41.jpg)
 
 [18/03/2022, 18:34:52] Shane: Looks like me sounds like you lot lol
 
@@ -24338,21 +24600,29 @@ Don’t think we have issues, we haven’t… god sake I need someone to judge p
 
 Let me know and I’ll get tickets 🤗
 
-‎[26/03/2022, 18:59:52] Shane: ![image](static/WA-elliot/00001623-PHOTO-2022-03-26-18-59-52.jpg)
+‎[26/03/2022, 18:59:52] Shane: 
+
+![image](static/WA-elliot/00001623-PHOTO-2022-03-26-18-59-52.jpg)
 
 [26/03/2022, 19:00:21] Elliot: Aaaahhhh she’s alive !!!
 
-‎[26/03/2022, 19:00:23] Elliot: ![image](static/WA-elliot/00001625-STICKER-2022-03-26-19-00-23.webp)
+‎[26/03/2022, 19:00:23] Elliot: 
+
+![image](static/WA-elliot/00001625-STICKER-2022-03-26-19-00-23.webp)
 
 [26/03/2022, 19:01:51] Elliot: Ok…. Rocket man will have killed us all by next Friday… I’ll take my chances babes 💅🏻
 
-‎[26/03/2022, 19:01:55] Elliot: ![image](static/WA-elliot/00001627-STICKER-2022-03-26-19-01-55.webp)
+‎[26/03/2022, 19:01:55] Elliot: 
+
+![image](static/WA-elliot/00001627-STICKER-2022-03-26-19-01-55.webp)
 
 [27/03/2022, 03:19:24] Shane: Yeah die bye
 
 [27/03/2022, 03:19:46] Elliot: Omg
 
-‎[27/03/2022, 03:19:57] Elliot: ![image](static/WA-elliot/00001630-STICKER-2022-03-27-03-19-57.webp)
+‎[27/03/2022, 03:19:57] Elliot: 
+
+![image](static/WA-elliot/00001630-STICKER-2022-03-27-03-19-57.webp)
 
 [27/03/2022, 06:59:19] Shane: I may have plans what don’t include you and legs at the club
 
@@ -24372,7 +24642,9 @@ Let me know and I’ll get tickets 🤗
 
 [27/03/2022, 07:11:10] Elliot: Wasn’t allowed to take pics here either
 
-‎[27/03/2022, 07:11:50] Elliot: ![image](static/WA-elliot/00001640-PHOTO-2022-03-27-07-11-50.jpg)
+‎[27/03/2022, 07:11:50] Elliot: 
+
+![image](static/WA-elliot/00001640-PHOTO-2022-03-27-07-11-50.jpg)
 
 ‎[27/03/2022, 14:40:36] Elliot: ‎video omitted
 
@@ -24388,19 +24660,25 @@ Let me know and I’ll get tickets 🤗
 
 [30/03/2022, 07:29:08] Elliot: Omg
 
-‎[30/03/2022, 07:29:22] Elliot: ![image](static/WA-elliot/00001648-STICKER-2022-03-30-07-29-22.webp)
+‎[30/03/2022, 07:29:22] Elliot: 
+
+![image](static/WA-elliot/00001648-STICKER-2022-03-30-07-29-22.webp)
 
 [30/03/2022, 07:29:33] Shane: NO
 
 [30/03/2022, 07:30:15] Elliot: No what ?
 
-‎[30/03/2022, 07:30:58] Elliot: ![image](static/WA-elliot/00001651-PHOTO-2022-03-30-07-30-58.jpg)
+‎[30/03/2022, 07:30:58] Elliot: 
+
+![image](static/WA-elliot/00001651-PHOTO-2022-03-30-07-30-58.jpg)
 
 [30/03/2022, 07:31:15] Shane: Nasty
 
 [30/03/2022, 07:31:22] Shane: Be nice
 
-‎[30/03/2022, 07:31:51] Elliot: ![image](static/WA-elliot/00001654-STICKER-2022-03-30-07-31-51.webp)
+‎[30/03/2022, 07:31:51] Elliot: 
+
+![image](static/WA-elliot/00001654-STICKER-2022-03-30-07-31-51.webp)
 
 [30/03/2022, 07:32:04] Shane: Little bitch
 
@@ -24414,13 +24692,19 @@ Let me know and I’ll get tickets 🤗
 
 [30/03/2022, 07:32:46] Elliot: Good
 
-‎[30/03/2022, 07:33:37] Shane: ![image](static/WA-elliot/00001661-PHOTO-2022-03-30-07-33-37.jpg)
+‎[30/03/2022, 07:33:37] Shane: 
+
+![image](static/WA-elliot/00001661-PHOTO-2022-03-30-07-33-37.jpg)
 
 [30/03/2022, 07:34:02] Elliot: Lol
 
-‎[30/03/2022, 08:13:52] Elliot: ![image](static/WA-elliot/00001663-PHOTO-2022-03-30-08-13-52.jpg)
+‎[30/03/2022, 08:13:52] Elliot: 
 
-‎[30/03/2022, 08:14:24] Shane: ![image](static/WA-elliot/00001664-PHOTO-2022-03-30-08-14-24.jpg)
+![image](static/WA-elliot/00001663-PHOTO-2022-03-30-08-13-52.jpg)
+
+‎[30/03/2022, 08:14:24] Shane: 
+
+![image](static/WA-elliot/00001664-PHOTO-2022-03-30-08-14-24.jpg)
 
 [30/03/2022, 08:14:49] Shane: It’s your fillers what have caused it to fucking sink
 
@@ -24434,9 +24718,13 @@ Let me know and I’ll get tickets 🤗
 
 [30/03/2022, 08:15:52] Elliot: 😱
 
-‎[30/03/2022, 08:16:32] Elliot: ![image](static/WA-elliot/00001671-PHOTO-2022-03-30-08-16-32.jpg)
+‎[30/03/2022, 08:16:32] Elliot: 
 
-‎[30/03/2022, 08:17:05] Shane: ![image](static/WA-elliot/00001672-PHOTO-2022-03-30-08-17-05.jpg)
+![image](static/WA-elliot/00001671-PHOTO-2022-03-30-08-16-32.jpg)
+
+‎[30/03/2022, 08:17:05] Shane: 
+
+![image](static/WA-elliot/00001672-PHOTO-2022-03-30-08-17-05.jpg)
 
 [30/03/2022, 08:17:32] Elliot: 🤣🤣🤣🤣🤣🤣🤣
 
@@ -24450,7 +24738,9 @@ Let me know and I’ll get tickets 🤗
 
 [30/03/2022, 08:18:48] Elliot: Yes.. all butch and dominating on holiday
 
-‎[30/03/2022, 08:19:32] Shane: ![image](static/WA-elliot/00001679-PHOTO-2022-03-30-08-19-31.jpg)
+‎[30/03/2022, 08:19:32] Shane: 
+
+![image](static/WA-elliot/00001679-PHOTO-2022-03-30-08-19-31.jpg)
 
 [30/03/2022, 08:19:52] Shane: Ron Jeremy water sports
 
@@ -24458,7 +24748,9 @@ Let me know and I’ll get tickets 🤗
 
 [30/03/2022, 09:41:18] Shane: Disgraceful
 
-‎[30/03/2022, 09:56:09] Elliot: ![image](static/WA-elliot/00001683-STICKER-2022-03-30-09-56-09.webp)
+‎[30/03/2022, 09:56:09] Elliot: 
+
+![image](static/WA-elliot/00001683-STICKER-2022-03-30-09-56-09.webp)
 
 [30/03/2022, 09:56:30] Shane: Omg is that that Wyndham
 
@@ -24658,7 +24950,9 @@ Your party is shit… bye
 
 [30/03/2022, 10:10:51] Shane: Disgusted
 
-‎[30/03/2022, 10:11:53] Elliot: ![image](static/WA-elliot/00001782-STICKER-2022-03-30-10-11-53.webp)
+‎[30/03/2022, 10:11:53] Elliot: 
+
+![image](static/WA-elliot/00001782-STICKER-2022-03-30-10-11-53.webp)
 
 [30/03/2022, 10:12:02] Shane: Fag
 
@@ -24668,7 +24962,9 @@ Your party is shit… bye
 
 ‎[30/03/2022, 17:42:46] Elliot: ‎video omitted
 
-‎[31/03/2022, 00:29:20] Shane: ![image](static/WA-elliot/00001787-PHOTO-2022-03-31-00-29-19.jpg)
+‎[31/03/2022, 00:29:20] Shane: 
+
+![image](static/WA-elliot/00001787-PHOTO-2022-03-31-00-29-19.jpg)
 
 [31/03/2022, 00:29:36] Shane: Black on black crime
 
@@ -24676,13 +24972,17 @@ Your party is shit… bye
 
 [31/03/2022, 07:23:14] Elliot: Black on black sex
 
-‎[31/03/2022, 07:23:45] Shane: ![image](static/WA-elliot/00001791-PHOTO-2022-03-31-07-23-45.jpg)
+‎[31/03/2022, 07:23:45] Shane: 
+
+![image](static/WA-elliot/00001791-PHOTO-2022-03-31-07-23-45.jpg)
 
 [31/03/2022, 07:23:53] Shane: He he
 
 [31/03/2022, 07:25:59] Elliot: Who the fuck is that
 
-‎[31/03/2022, 07:26:11] Elliot: ![image](static/WA-elliot/00001794-PHOTO-2022-03-31-07-26-11.jpg)
+‎[31/03/2022, 07:26:11] Elliot: 
+
+![image](static/WA-elliot/00001794-PHOTO-2022-03-31-07-26-11.jpg)
 
 [31/03/2022, 07:26:13] Shane: Andrew taking out the trash
 
@@ -24708,7 +25008,9 @@ Your party is shit… bye
 
 [31/03/2022, 07:28:12] Shane: Oh lol
 
-‎[31/03/2022, 07:51:24] Shane: ![image](static/WA-elliot/00001807-PHOTO-2022-03-31-07-51-24.jpg)
+‎[31/03/2022, 07:51:24] Shane: 
+
+![image](static/WA-elliot/00001807-PHOTO-2022-03-31-07-51-24.jpg)
 
 [31/03/2022, 07:51:51] Elliot: No
 
@@ -24726,7 +25028,9 @@ Your party is shit… bye
 
 [31/03/2022, 07:52:57] Elliot: Yeah….. FUCK ME
 
-‎[31/03/2022, 07:53:03] Elliot: ![image](static/WA-elliot/00001816-STICKER-2022-03-31-07-53-03.webp)
+‎[31/03/2022, 07:53:03] Elliot: 
+
+![image](static/WA-elliot/00001816-STICKER-2022-03-31-07-53-03.webp)
 
 [31/03/2022, 07:53:09] Shane: When you was young 20 years ago
 
@@ -24768,7 +25072,9 @@ Your party is shit… bye
 
 [31/03/2022, 07:55:43] Elliot: Good
 
-‎[31/03/2022, 07:55:48] Elliot: ![image](static/WA-elliot/00001837-STICKER-2022-03-31-07-55-48.webp)
+‎[31/03/2022, 07:55:48] Elliot: 
+
+![image](static/WA-elliot/00001837-STICKER-2022-03-31-07-55-48.webp)
 
 [31/03/2022, 07:56:03] Elliot: More room for me in the bogs then
 
@@ -24782,11 +25088,17 @@ Your party is shit… bye
 
 [31/03/2022, 07:56:52] Elliot: He he
 
-‎[31/03/2022, 07:56:55] Elliot: ![image](static/WA-elliot/00001844-STICKER-2022-03-31-07-56-55.webp)
+‎[31/03/2022, 07:56:55] Elliot: 
 
-‎[31/03/2022, 07:57:13] Shane: ![image](static/WA-elliot/00001845-PHOTO-2022-03-31-07-57-13.jpg)
+![image](static/WA-elliot/00001844-STICKER-2022-03-31-07-56-55.webp)
 
-‎[31/03/2022, 07:57:21] Elliot: ![image](static/WA-elliot/00001846-STICKER-2022-03-31-07-57-21.webp)
+‎[31/03/2022, 07:57:13] Shane: 
+
+![image](static/WA-elliot/00001845-PHOTO-2022-03-31-07-57-13.jpg)
+
+‎[31/03/2022, 07:57:21] Elliot: 
+
+![image](static/WA-elliot/00001846-STICKER-2022-03-31-07-57-21.webp)
 
 [31/03/2022, 07:57:30] Shane: Is he working
 
@@ -24796,17 +25108,29 @@ Your party is shit… bye
 
 [31/03/2022, 07:57:49] Shane: Ahh lol
 
-‎[31/03/2022, 07:58:39] Elliot: ![image](static/WA-elliot/00001851-STICKER-2022-03-31-07-58-39.webp)
+‎[31/03/2022, 07:58:39] Elliot: 
 
-‎[31/03/2022, 07:58:48] Elliot: ![image](static/WA-elliot/00001852-STICKER-2022-03-31-07-58-48.webp)
+![image](static/WA-elliot/00001851-STICKER-2022-03-31-07-58-39.webp)
 
-‎[31/03/2022, 07:58:52] Elliot: ![image](static/WA-elliot/00001853-STICKER-2022-03-31-07-58-52.webp)
+‎[31/03/2022, 07:58:48] Elliot: 
 
-‎[31/03/2022, 07:58:59] Elliot: ![image](static/WA-elliot/00001854-STICKER-2022-03-31-07-58-59.webp)
+![image](static/WA-elliot/00001852-STICKER-2022-03-31-07-58-48.webp)
 
-‎[31/03/2022, 07:59:08] Elliot: ![image](static/WA-elliot/00001855-STICKER-2022-03-31-07-59-08.webp)
+‎[31/03/2022, 07:58:52] Elliot: 
 
-‎[31/03/2022, 07:59:16] Elliot: ![image](static/WA-elliot/00001856-STICKER-2022-03-31-07-59-16.webp)
+![image](static/WA-elliot/00001853-STICKER-2022-03-31-07-58-52.webp)
+
+‎[31/03/2022, 07:58:59] Elliot: 
+
+![image](static/WA-elliot/00001854-STICKER-2022-03-31-07-58-59.webp)
+
+‎[31/03/2022, 07:59:08] Elliot: 
+
+![image](static/WA-elliot/00001855-STICKER-2022-03-31-07-59-08.webp)
+
+‎[31/03/2022, 07:59:16] Elliot: 
+
+![image](static/WA-elliot/00001856-STICKER-2022-03-31-07-59-16.webp)
 
 [31/03/2022, 08:01:58] Shane: Disgusted
 
@@ -25028,7 +25352,9 @@ Xxl
 
 [31/03/2022, 08:22:11] Shane: Like let go then
 
-‎[31/03/2022, 08:22:17] Elliot: ![image](static/WA-elliot/00001965-STICKER-2022-03-31-08-22-17.webp)
+‎[31/03/2022, 08:22:17] Elliot: 
+
+![image](static/WA-elliot/00001965-STICKER-2022-03-31-08-22-17.webp)
 
 [31/03/2022, 08:22:48] Shane: Camp girl
 
@@ -25142,7 +25468,9 @@ Like fuck you
 
 [31/03/2022, 09:10:27] Shane: Well more Friend than before
 
-‎[31/03/2022, 09:10:36] Elliot: ![image](static/WA-elliot/00002021-PHOTO-2022-03-31-09-10-36.jpg)
+‎[31/03/2022, 09:10:36] Elliot: 
+
+![image](static/WA-elliot/00002021-PHOTO-2022-03-31-09-10-36.jpg)
 
 [31/03/2022, 09:10:48] Shane: I get some memories from 9 years ago with you in it
 
@@ -25184,13 +25512,19 @@ Like fuck you
 
 [31/03/2022, 09:13:07] Elliot: Still didn’t get barred haha
 
-‎[31/03/2022, 09:14:27] Elliot: ![image](static/WA-elliot/00002043-PHOTO-2022-03-31-09-14-27.jpg)
+‎[31/03/2022, 09:14:27] Elliot: 
 
-‎[31/03/2022, 09:14:42] Elliot: ![image](static/WA-elliot/00002044-PHOTO-2022-03-31-09-14-42.jpg)
+![image](static/WA-elliot/00002043-PHOTO-2022-03-31-09-14-27.jpg)
+
+‎[31/03/2022, 09:14:42] Elliot: 
+
+![image](static/WA-elliot/00002044-PHOTO-2022-03-31-09-14-42.jpg)
 
 [31/03/2022, 09:14:50] Shane: Yay
 
-‎[31/03/2022, 09:15:09] Elliot: ![image](static/WA-elliot/00002046-GIF-2022-03-31-09-15-09.mp4)
+‎[31/03/2022, 09:15:09] Elliot: 
+
+![image](static/WA-elliot/00002046-GIF-2022-03-31-09-15-09.mp4)
 
 [31/03/2022, 09:15:24] Shane: What a fucking great night
 
@@ -25240,7 +25574,9 @@ Like fuck you
 
 [31/03/2022, 09:19:50] Shane: Omg
 
-‎[31/03/2022, 10:38:40] Shane: ![image](static/WA-elliot/00002071-PHOTO-2022-03-31-10-38-40.jpg)
+‎[31/03/2022, 10:38:40] Shane: 
+
+![image](static/WA-elliot/00002071-PHOTO-2022-03-31-10-38-40.jpg)
 
 [31/03/2022, 10:38:43] Shane: Omg
 
@@ -25248,7 +25584,9 @@ Like fuck you
 
 [31/03/2022, 10:53:28] Elliot: Omg ha ha ha
 
-‎[31/03/2022, 16:00:40] Shane: ![image](static/WA-elliot/00002075-PHOTO-2022-03-31-16-00-40.jpg)
+‎[31/03/2022, 16:00:40] Shane: 
+
+![image](static/WA-elliot/00002075-PHOTO-2022-03-31-16-00-40.jpg)
 
 [31/03/2022, 16:06:25] Elliot: I’m a changed person girl
 
@@ -25256,7 +25594,9 @@ Like fuck you
 
 [31/03/2022, 16:06:37] Elliot: I’m more excepting
 
-‎[31/03/2022, 16:06:41] Elliot: ![image](static/WA-elliot/00002079-STICKER-2022-03-31-16-06-41.webp)
+‎[31/03/2022, 16:06:41] Elliot: 
+
+![image](static/WA-elliot/00002079-STICKER-2022-03-31-16-06-41.webp)
 
 [31/03/2022, 16:06:45] Shane: When it suits
 
@@ -25266,9 +25606,13 @@ Like fuck you
 
 [31/03/2022, 16:07:31] Shane: Think you have a antisocial personality disorder
 
-‎[31/03/2022, 16:08:03] Elliot: ![image](static/WA-elliot/00002084-STICKER-2022-03-31-16-08-03.webp)
+‎[31/03/2022, 16:08:03] Elliot: 
 
-‎[31/03/2022, 16:08:30] Elliot: ![image](static/WA-elliot/00002085-STICKER-2022-03-31-16-08-30.webp)
+![image](static/WA-elliot/00002084-STICKER-2022-03-31-16-08-03.webp)
+
+‎[31/03/2022, 16:08:30] Elliot: 
+
+![image](static/WA-elliot/00002085-STICKER-2022-03-31-16-08-30.webp)
 
 [31/03/2022, 16:08:55] Shane: Will use charm or wit to deceive for personal gain
 
@@ -25284,11 +25628,15 @@ Like fuck you
 
 [31/03/2022, 16:10:15] Elliot: No no no no no
 
-‎[31/03/2022, 16:10:26] Elliot: ![image](static/WA-elliot/00002093-STICKER-2022-03-31-16-10-26.webp)
+‎[31/03/2022, 16:10:26] Elliot: 
+
+![image](static/WA-elliot/00002093-STICKER-2022-03-31-16-10-26.webp)
 
 [31/03/2022, 16:10:31] Elliot: Bye
 
-‎[31/03/2022, 16:10:48] Shane: ![image](static/WA-elliot/00002095-PHOTO-2022-03-31-16-10-47.jpg)
+‎[31/03/2022, 16:10:48] Shane: 
+
+![image](static/WA-elliot/00002095-PHOTO-2022-03-31-16-10-47.jpg)
 
 [31/03/2022, 16:10:56] Shane: All that is you
 
@@ -25320,7 +25668,9 @@ Like fuck you
 
 [31/03/2022, 16:21:12] Shane: Be nice to me
 
-‎[31/03/2022, 16:21:17] Elliot: ![image](static/WA-elliot/00002111-STICKER-2022-03-31-16-21-17.webp)
+‎[31/03/2022, 16:21:17] Elliot: 
+
+![image](static/WA-elliot/00002111-STICKER-2022-03-31-16-21-17.webp)
 
 [31/03/2022, 16:21:28] Shane: You’ve done nothing to show your sorry
 
@@ -25328,21 +25678,29 @@ Like fuck you
 
 [31/03/2022, 16:21:33] Shane: Little slag
 
-‎[31/03/2022, 16:21:34] Elliot: ![image](static/WA-elliot/00002115-STICKER-2022-03-31-16-21-34.webp)
+‎[31/03/2022, 16:21:34] Elliot: 
 
-‎[31/03/2022, 16:21:51] Elliot: ![image](static/WA-elliot/00002116-STICKER-2022-03-31-16-21-51.webp)
+![image](static/WA-elliot/00002115-STICKER-2022-03-31-16-21-34.webp)
+
+‎[31/03/2022, 16:21:51] Elliot: 
+
+![image](static/WA-elliot/00002116-STICKER-2022-03-31-16-21-51.webp)
 
 [31/03/2022, 16:22:00] Shane: Pushed away
 
 [31/03/2022, 16:22:14] Shane: Abandoned
 
-‎[31/03/2022, 16:22:19] Elliot: ![image](static/WA-elliot/00002119-STICKER-2022-03-31-16-22-19.webp)
+‎[31/03/2022, 16:22:19] Elliot: 
+
+![image](static/WA-elliot/00002119-STICKER-2022-03-31-16-22-19.webp)
 
 [31/03/2022, 16:22:19] Shane: Disposed off
 
 [31/03/2022, 16:22:38] Shane: Filth
 
-‎[31/03/2022, 16:23:13] Shane: ![image](static/WA-elliot/00002122-PHOTO-2022-03-31-16-23-12.jpg)
+‎[31/03/2022, 16:23:13] Shane: 
+
+![image](static/WA-elliot/00002122-PHOTO-2022-03-31-16-23-12.jpg)
 
 [31/03/2022, 16:31:48] Elliot: See
 
@@ -25362,7 +25720,9 @@ Like fuck you
 
 [31/03/2022, 16:32:21] Shane: Did so
 
-‎[31/03/2022, 16:32:33] Elliot: ![image](static/WA-elliot/00002132-STICKER-2022-03-31-16-32-33.webp)
+‎[31/03/2022, 16:32:33] Elliot: 
+
+![image](static/WA-elliot/00002132-STICKER-2022-03-31-16-32-33.webp)
 
 [31/03/2022, 16:32:45] Shane: I wouldn’t be the person I am today if it wasn’t for you
 
@@ -25374,7 +25734,9 @@ Like fuck you
 
 [31/03/2022, 16:38:37] Shane: Harold shipman
 
-‎[31/03/2022, 16:39:17] Elliot: ![image](static/WA-elliot/00002138-STICKER-2022-03-31-16-39-17.webp)
+‎[31/03/2022, 16:39:17] Elliot: 
+
+![image](static/WA-elliot/00002138-STICKER-2022-03-31-16-39-17.webp)
 
 [31/03/2022, 16:39:29] Shane: Who is that
 
@@ -25420,7 +25782,9 @@ Like fuck you
 
 [31/03/2022, 16:43:54] Shane: Pffft
 
-‎[31/03/2022, 16:45:03] Elliot: ![image](static/WA-elliot/00002161-PHOTO-2022-03-31-16-45-03.jpg)
+‎[31/03/2022, 16:45:03] Elliot: 
+
+![image](static/WA-elliot/00002161-PHOTO-2022-03-31-16-45-03.jpg)
 
 [31/03/2022, 16:45:13] Shane: I had to break in
 
@@ -25430,7 +25794,9 @@ Like fuck you
 
 [31/03/2022, 17:11:10] Shane: Lies
 
-‎[31/03/2022, 17:12:11] Shane: ![image](static/WA-elliot/00002166-PHOTO-2022-03-31-17-12-11.jpg)
+‎[31/03/2022, 17:12:11] Shane: 
+
+![image](static/WA-elliot/00002166-PHOTO-2022-03-31-17-12-11.jpg)
 
 [31/03/2022, 17:13:58] Shane: We as only bared from there because of that nonce Brett
 
@@ -25444,9 +25810,13 @@ Like fuck you
 
 [31/03/2022, 17:59:28] Elliot: He he
 
-‎[01/04/2022, 09:13:12] Elliot: ![image](static/WA-elliot/00002173-PHOTO-2022-04-01-09-13-12.jpg)
+‎[01/04/2022, 09:13:12] Elliot: 
 
-‎[01/04/2022, 09:15:39] Shane: ![image](static/WA-elliot/00002174-PHOTO-2022-04-01-09-15-39.jpg)
+![image](static/WA-elliot/00002173-PHOTO-2022-04-01-09-13-12.jpg)
+
+‎[01/04/2022, 09:15:39] Shane: 
+
+![image](static/WA-elliot/00002174-PHOTO-2022-04-01-09-15-39.jpg)
 
 [01/04/2022, 09:23:36] Elliot: Lol
 
@@ -25454,25 +25824,33 @@ Like fuck you
 
 [01/04/2022, 12:58:14] Elliot: Just finished the house work now going shopping for little legs Birthday
 
-‎[01/04/2022, 12:58:40] Shane: ![image](static/WA-elliot/00002178-PHOTO-2022-04-01-12-58-40.jpg)
+‎[01/04/2022, 12:58:40] Shane: 
+
+![image](static/WA-elliot/00002178-PHOTO-2022-04-01-12-58-40.jpg)
 
 [01/04/2022, 12:58:46] Shane: But him that
 
 [01/04/2022, 12:58:47] Elliot: Lol
 
-‎[01/04/2022, 13:16:50] Shane: ![image](static/WA-elliot/00002181-PHOTO-2022-04-01-13-16-50.jpg)
+‎[01/04/2022, 13:16:50] Shane: 
+
+![image](static/WA-elliot/00002181-PHOTO-2022-04-01-13-16-50.jpg)
 
 [01/04/2022, 13:17:56] Elliot: No it’s perfect
 
 [01/04/2022, 13:18:06] Shane: Good
 
-‎[01/04/2022, 15:54:37] Shane: ![image](static/WA-elliot/00002184-PHOTO-2022-04-01-15-54-37.jpg)
+‎[01/04/2022, 15:54:37] Shane: 
+
+![image](static/WA-elliot/00002184-PHOTO-2022-04-01-15-54-37.jpg)
 
 [01/04/2022, 15:54:46] Shane: Simon Patrick
 
 [01/04/2022, 15:57:48] Elliot: Ha ha ha
 
-‎[01/04/2022, 16:06:05] Shane: ![image](static/WA-elliot/00002187-PHOTO-2022-04-01-16-06-05.jpg)
+‎[01/04/2022, 16:06:05] Shane: 
+
+![image](static/WA-elliot/00002187-PHOTO-2022-04-01-16-06-05.jpg)
 
 [01/04/2022, 16:06:30] Shane: Banging on about the box having a spy cam on him other day
 
@@ -25510,7 +25888,9 @@ Like fuck you
 
 [01/04/2022, 20:08:15] Elliot: 🤮
 
-‎[01/04/2022, 20:08:18] Elliot: ![image](static/WA-elliot/00002206-STICKER-2022-04-01-20-08-18.webp)
+‎[01/04/2022, 20:08:18] Elliot: 
+
+![image](static/WA-elliot/00002206-STICKER-2022-04-01-20-08-18.webp)
 
 [01/04/2022, 20:08:32] Shane: Hate stories
 
@@ -25524,11 +25904,15 @@ Like fuck you
 
 [01/04/2022, 20:09:16] Shane: I need a new ballot box
 
-‎[01/04/2022, 20:09:16] Elliot: ![image](static/WA-elliot/00002213-STICKER-2022-04-01-20-09-16.webp)
+‎[01/04/2022, 20:09:16] Elliot: 
+
+![image](static/WA-elliot/00002213-STICKER-2022-04-01-20-09-16.webp)
 
 [01/04/2022, 20:09:23] Shane: Offfft
 
-‎[01/04/2022, 20:09:26] Elliot: ![image](static/WA-elliot/00002215-STICKER-2022-04-01-20-09-26.webp)
+‎[01/04/2022, 20:09:26] Elliot: 
+
+![image](static/WA-elliot/00002215-STICKER-2022-04-01-20-09-26.webp)
 
 [01/04/2022, 20:09:32] Shane: Did gusted
 
@@ -25544,7 +25928,9 @@ Like fuck you
 
 [01/04/2022, 20:10:34] Elliot: Yeah I am
 
-‎[01/04/2022, 20:10:37] Elliot: ![image](static/WA-elliot/00002223-STICKER-2022-04-01-20-10-37.webp)
+‎[01/04/2022, 20:10:37] Elliot: 
+
+![image](static/WA-elliot/00002223-STICKER-2022-04-01-20-10-37.webp)
 
 [01/04/2022, 20:10:56] Shane: How come
 
@@ -25564,7 +25950,9 @@ Like fuck you
 
 [01/04/2022, 20:11:59] Shane: Upsetting people
 
-‎[01/04/2022, 20:12:02] Elliot: ![image](static/WA-elliot/00002233-STICKER-2022-04-01-20-12-02.webp)
+‎[01/04/2022, 20:12:02] Elliot: 
+
+![image](static/WA-elliot/00002233-STICKER-2022-04-01-20-12-02.webp)
 
 [01/04/2022, 20:12:25] Shane: You should see twitter they attack her everyday
 
@@ -25608,7 +25996,9 @@ Like fuck you
 
 [01/04/2022, 20:19:03] Elliot: Us
 
-‎[01/04/2022, 20:19:13] Elliot: ![image](static/WA-elliot/00002255-STICKER-2022-04-01-20-19-13.webp)
+‎[01/04/2022, 20:19:13] Elliot: 
+
+![image](static/WA-elliot/00002255-STICKER-2022-04-01-20-19-13.webp)
 
 [01/04/2022, 20:19:24] Shane: Well it would be quicker tbh
 
@@ -25706,7 +26096,9 @@ Like fuck you
 
 [01/04/2022, 20:37:14] Shane: Lies lies lies
 
-‎[01/04/2022, 20:38:23] Elliot: ![image](static/WA-elliot/00002304-PHOTO-2022-04-01-20-38-23.jpg)
+‎[01/04/2022, 20:38:23] Elliot: 
+
+![image](static/WA-elliot/00002304-PHOTO-2022-04-01-20-38-23.jpg)
 
 [01/04/2022, 20:39:27] Shane: Yes that was after you had committed crimes against humanity against me who would want to go with you
 
@@ -25726,7 +26118,9 @@ Like fuck you
 
 [01/04/2022, 20:41:16] Shane: Ooh I like that word
 
-‎[01/04/2022, 20:41:46] Elliot: ![image](static/WA-elliot/00002314-STICKER-2022-04-01-20-41-46.webp)
+‎[01/04/2022, 20:41:46] Elliot: 
+
+![image](static/WA-elliot/00002314-STICKER-2022-04-01-20-41-46.webp)
 
 [01/04/2022, 20:46:14] Shane: Good job You didn’t anyway it’s too fecking cold to be out lol
 
@@ -25764,7 +26158,9 @@ Like fuck you
 
 [01/04/2022, 20:52:28] Elliot: Omg
 
-‎[01/04/2022, 20:52:52] Elliot: ![image](static/WA-elliot/00002333-STICKER-2022-04-01-20-52-52.webp)
+‎[01/04/2022, 20:52:52] Elliot: 
+
+![image](static/WA-elliot/00002333-STICKER-2022-04-01-20-52-52.webp)
 
 [01/04/2022, 23:48:22] Elliot: He he
 
@@ -25798,7 +26194,9 @@ Like fuck you
 
 [02/04/2022, 09:38:37] Shane: Thanks for not inviting me to go
 
-‎[02/04/2022, 09:38:42] Elliot: ![image](static/WA-elliot/00002350-PHOTO-2022-04-02-09-38-42.jpg)
+‎[02/04/2022, 09:38:42] Elliot: 
+
+![image](static/WA-elliot/00002350-PHOTO-2022-04-02-09-38-42.jpg)
 
 [02/04/2022, 09:38:47] Elliot: Ooops
 
@@ -26038,7 +26436,9 @@ Bitch
 
 [02/04/2022, 09:56:54] Shane: Hahahaha
 
-‎[02/04/2022, 09:57:23] Shane: ![image](static/WA-elliot/00002469-PHOTO-2022-04-02-09-57-23.jpg)
+‎[02/04/2022, 09:57:23] Shane: 
+
+![image](static/WA-elliot/00002469-PHOTO-2022-04-02-09-57-23.jpg)
 
 [02/04/2022, 09:57:23] Elliot: Yeah I know…
 
@@ -26086,7 +26486,9 @@ Bitch
 
 [02/04/2022, 10:06:02] Elliot: Lol
 
-‎[02/04/2022, 10:06:15] Shane: ![image](static/WA-elliot/00002494-GIF-2022-04-02-10-06-14.mp4)
+‎[02/04/2022, 10:06:15] Shane: 
+
+![image](static/WA-elliot/00002494-GIF-2022-04-02-10-06-14.mp4)
 
 [02/04/2022, 10:06:33] Shane: Jump on you snowman and destroy it
 
@@ -26176,23 +26578,33 @@ Bitch
 
 [02/04/2022, 11:51:09] Shane: Haha
 
-‎[02/04/2022, 15:16:33] Shane: ![image](static/WA-elliot/00002539-PHOTO-2022-04-02-15-16-33.jpg)
+‎[02/04/2022, 15:16:33] Shane: 
+
+![image](static/WA-elliot/00002539-PHOTO-2022-04-02-15-16-33.jpg)
 
 [02/04/2022, 15:22:10] Elliot: Lol
 
-‎[02/04/2022, 15:34:49] Shane: ![image](static/WA-elliot/00002541-PHOTO-2022-04-02-15-34-48.jpg)
+‎[02/04/2022, 15:34:49] Shane: 
+
+![image](static/WA-elliot/00002541-PHOTO-2022-04-02-15-34-48.jpg)
 
 [02/04/2022, 15:35:14] Elliot: Yuck
 
-‎[02/04/2022, 15:35:22] Shane: ![image](static/WA-elliot/00002543-PHOTO-2022-04-02-15-35-22.jpg)
+‎[02/04/2022, 15:35:22] Shane: 
+
+![image](static/WA-elliot/00002543-PHOTO-2022-04-02-15-35-22.jpg)
 
 [02/04/2022, 15:35:27] Shane: Hehe
 
-‎[02/04/2022, 15:35:51] Elliot: ![image](static/WA-elliot/00002545-PHOTO-2022-04-02-15-35-51.jpg)
+‎[02/04/2022, 15:35:51] Elliot: 
+
+![image](static/WA-elliot/00002545-PHOTO-2022-04-02-15-35-51.jpg)
 
 [02/04/2022, 15:35:58] Elliot: Ooooo he he
 
-‎[02/04/2022, 15:36:32] Shane: ![image](static/WA-elliot/00002547-PHOTO-2022-04-02-15-36-32.jpg)
+‎[02/04/2022, 15:36:32] Shane: 
+
+![image](static/WA-elliot/00002547-PHOTO-2022-04-02-15-36-32.jpg)
 
 [02/04/2022, 16:28:34] Elliot: Operations Manuel
 
@@ -26244,7 +26656,9 @@ Bitch
 
 [02/04/2022, 16:41:05] Shane: BAM
 
-‎[02/04/2022, 16:41:29] Elliot: ![image](static/WA-elliot/00002573-PHOTO-2022-04-02-16-41-29.jpg)
+‎[02/04/2022, 16:41:29] Elliot: 
+
+![image](static/WA-elliot/00002573-PHOTO-2022-04-02-16-41-29.jpg)
 
 [02/04/2022, 16:41:33] Elliot: BAM
 
@@ -26254,11 +26668,15 @@ Bitch
 
 ‎[02/04/2022, 16:42:10] Elliot: ‎video omitted
 
-‎[02/04/2022, 17:12:21] Shane: ![image](static/WA-elliot/00002578-PHOTO-2022-04-02-17-12-21.jpg)
+‎[02/04/2022, 17:12:21] Shane: 
+
+![image](static/WA-elliot/00002578-PHOTO-2022-04-02-17-12-21.jpg)
 
 [02/04/2022, 17:12:56] Elliot: Eeeewww
 
-‎[02/04/2022, 17:13:04] Shane: ![image](static/WA-elliot/00002580-PHOTO-2022-04-02-17-13-03.jpg)
+‎[02/04/2022, 17:13:04] Shane: 
+
+![image](static/WA-elliot/00002580-PHOTO-2022-04-02-17-13-03.jpg)
 
 [02/04/2022, 17:26:49] Elliot: Omg
 
@@ -26278,7 +26696,9 @@ Bitch
 
 [02/04/2022, 17:29:17] Elliot: Lol
 
-‎[02/04/2022, 20:40:51] Shane: ![image](static/WA-elliot/00002590-PHOTO-2022-04-02-20-40-51.jpg)
+‎[02/04/2022, 20:40:51] Shane: 
+
+![image](static/WA-elliot/00002590-PHOTO-2022-04-02-20-40-51.jpg)
 
 [02/04/2022, 20:40:59] Shane: Cheeky bastard
 
@@ -26332,15 +26752,21 @@ Bitch
 
 [04/04/2022, 12:56:56] Shane: I considered putting it on Facebook but I’m glad I didn’t
 
-‎[04/04/2022, 13:04:53] Elliot: ![image](static/WA-elliot/00002617-STICKER-2022-04-04-13-04-53.webp)
+‎[04/04/2022, 13:04:53] Elliot: 
 
-‎[04/04/2022, 13:05:16] Shane: ![image](static/WA-elliot/00002618-PHOTO-2022-04-04-13-05-16.jpg)
+![image](static/WA-elliot/00002617-STICKER-2022-04-04-13-04-53.webp)
+
+‎[04/04/2022, 13:05:16] Shane: 
+
+![image](static/WA-elliot/00002618-PHOTO-2022-04-04-13-05-16.jpg)
 
 [04/04/2022, 13:05:51] Elliot: Omg ha ha ha ha
 
 [04/04/2022, 13:05:57] Elliot: It is you
 
-‎[04/04/2022, 13:05:59] Shane: ![image](static/WA-elliot/00002621-PHOTO-2022-04-04-13-05-59.jpg)
+‎[04/04/2022, 13:05:59] Shane: 
+
+![image](static/WA-elliot/00002621-PHOTO-2022-04-04-13-05-59.jpg)
 
 [04/04/2022, 16:36:48] Shane: Apparently it’s not true
 
@@ -26542,7 +26968,9 @@ Bitch
 
 [04/04/2022, 18:19:08] Elliot: Omg ha ha ha
 
-‎[04/04/2022, 18:19:11] Elliot: ![image](static/WA-elliot/00002721-STICKER-2022-04-04-18-19-11.webp)
+‎[04/04/2022, 18:19:11] Elliot: 
+
+![image](static/WA-elliot/00002721-STICKER-2022-04-04-18-19-11.webp)
 
 [04/04/2022, 18:19:15] Elliot: That one ?
 
@@ -26560,11 +26988,17 @@ Bitch
 
 [04/04/2022, 19:29:36] Elliot: Oops GM
 
-‎[04/04/2022, 19:29:45] Elliot: ![image](static/WA-elliot/00002730-STICKER-2022-04-04-19-29-45.webp)
+‎[04/04/2022, 19:29:45] Elliot: 
 
-‎[04/04/2022, 19:29:52] Shane: ![image](static/WA-elliot/00002731-PHOTO-2022-04-04-19-29-52.jpg)
+![image](static/WA-elliot/00002730-STICKER-2022-04-04-19-29-45.webp)
 
-‎[04/04/2022, 19:29:53] Elliot: ![image](static/WA-elliot/00002732-STICKER-2022-04-04-19-29-53.webp)
+‎[04/04/2022, 19:29:52] Shane: 
+
+![image](static/WA-elliot/00002731-PHOTO-2022-04-04-19-29-52.jpg)
+
+‎[04/04/2022, 19:29:53] Elliot: 
+
+![image](static/WA-elliot/00002732-STICKER-2022-04-04-19-29-53.webp)
 
 [04/04/2022, 19:29:59] Shane: Haha
 
@@ -26578,7 +27012,9 @@ Bitch
 
 [04/04/2022, 19:31:17] Shane: What’s
 
-‎[04/04/2022, 19:31:24] Elliot: ![image](static/WA-elliot/00002739-PHOTO-2022-04-04-19-31-24.jpg)
+‎[04/04/2022, 19:31:24] Elliot: 
+
+![image](static/WA-elliot/00002739-PHOTO-2022-04-04-19-31-24.jpg)
 
 [04/04/2022, 19:31:25] Shane: The difference
 
@@ -26612,9 +27048,13 @@ Bitch
 
 [04/04/2022, 19:34:50] Shane: Borad meeting over
 
-‎[04/04/2022, 19:34:55] Elliot: ![image](static/WA-elliot/00002756-STICKER-2022-04-04-19-34-55.webp)
+‎[04/04/2022, 19:34:55] Elliot: 
 
-‎[05/04/2022, 07:23:01] Shane: ![image](static/WA-elliot/00002757-PHOTO-2022-04-05-07-23-01.jpg)
+![image](static/WA-elliot/00002756-STICKER-2022-04-04-19-34-55.webp)
+
+‎[05/04/2022, 07:23:01] Shane: 
+
+![image](static/WA-elliot/00002757-PHOTO-2022-04-05-07-23-01.jpg)
 
 [05/04/2022, 07:23:16] Shane: Is that Jessica James
 
@@ -26628,19 +27068,27 @@ Bitch
 
 [05/04/2022, 07:27:41] Shane: BAM
 
-‎[05/04/2022, 07:27:46] Shane: ![image](static/WA-elliot/00002764-PHOTO-2022-04-05-07-27-45.jpg)
+‎[05/04/2022, 07:27:46] Shane: 
+
+![image](static/WA-elliot/00002764-PHOTO-2022-04-05-07-27-45.jpg)
 
 [05/04/2022, 07:37:25] Elliot: Omg
 
-‎[05/04/2022, 08:47:29] Elliot: ![image](static/WA-elliot/00002766-PHOTO-2022-04-05-08-47-29.jpg)
+‎[05/04/2022, 08:47:29] Elliot: 
+
+![image](static/WA-elliot/00002766-PHOTO-2022-04-05-08-47-29.jpg)
 
 [05/04/2022, 08:48:10] Shane: Hahah
 
 [05/04/2022, 08:48:24] Shane: I do get my self in some situations
 
-‎[05/04/2022, 08:49:28] Elliot: ![image](static/WA-elliot/00002769-PHOTO-2022-04-05-08-49-28.jpg)
+‎[05/04/2022, 08:49:28] Elliot: 
 
-‎[05/04/2022, 08:49:52] Shane: ![image](static/WA-elliot/00002770-PHOTO-2022-04-05-08-49-52.jpg)
+![image](static/WA-elliot/00002769-PHOTO-2022-04-05-08-49-28.jpg)
+
+‎[05/04/2022, 08:49:52] Shane: 
+
+![image](static/WA-elliot/00002770-PHOTO-2022-04-05-08-49-52.jpg)
 
 [05/04/2022, 08:50:38] Elliot: Ha ha omg
 
@@ -26650,7 +27098,9 @@ Bitch
 
 [05/04/2022, 08:58:36] Elliot: Lol
 
-‎[05/04/2022, 08:59:10] Shane: ![image](static/WA-elliot/00002775-PHOTO-2022-04-05-08-59-10.jpg)
+‎[05/04/2022, 08:59:10] Shane: 
+
+![image](static/WA-elliot/00002775-PHOTO-2022-04-05-08-59-10.jpg)
 
 [05/04/2022, 08:59:20] Shane: Me: wrong person sorry
 
@@ -26662,23 +27112,31 @@ Bitch
 
 [05/04/2022, 09:00:12] Elliot: Ha ha
 
-‎[05/04/2022, 09:01:50] Elliot: ![image](static/WA-elliot/00002781-STICKER-2022-04-05-09-01-50.webp)
+‎[05/04/2022, 09:01:50] Elliot: 
+
+![image](static/WA-elliot/00002781-STICKER-2022-04-05-09-01-50.webp)
 
 [05/04/2022, 09:01:54] Elliot: Love it
 
-‎[05/04/2022, 09:03:38] Elliot: ![image](static/WA-elliot/00002783-PHOTO-2022-04-05-09-03-38.jpg)
+‎[05/04/2022, 09:03:38] Elliot: 
+
+![image](static/WA-elliot/00002783-PHOTO-2022-04-05-09-03-38.jpg)
 
 [05/04/2022, 09:42:38] Shane: Filth
 
 [05/04/2022, 09:49:43] Elliot: He he
 
-‎[05/04/2022, 09:49:45] Elliot: ![image](static/WA-elliot/00002786-STICKER-2022-04-05-09-49-45.webp)
+‎[05/04/2022, 09:49:45] Elliot: 
+
+![image](static/WA-elliot/00002786-STICKER-2022-04-05-09-49-45.webp)
 
 [05/04/2022, 09:50:11] Shane: Lol
 
 [05/04/2022, 09:50:27] Shane: Wtf are you doing today
 
-‎[05/04/2022, 09:50:58] Elliot: ![image](static/WA-elliot/00002789-PHOTO-2022-04-05-09-50-58.jpg)
+‎[05/04/2022, 09:50:58] Elliot: 
+
+![image](static/WA-elliot/00002789-PHOTO-2022-04-05-09-50-58.jpg)
 
 [05/04/2022, 09:51:08] Elliot: Then got a few meetings at the club
 
@@ -26698,15 +27156,23 @@ Bitch
 
 [05/04/2022, 09:54:22] Shane: Charlie alpha Tango
 
-‎[05/04/2022, 09:54:45] Elliot: ![image](static/WA-elliot/00002799-STICKER-2022-04-05-09-54-45.webp)
+‎[05/04/2022, 09:54:45] Elliot: 
 
-‎[05/04/2022, 09:54:50] Elliot: ![image](static/WA-elliot/00002800-STICKER-2022-04-05-09-54-50.webp)
+![image](static/WA-elliot/00002799-STICKER-2022-04-05-09-54-45.webp)
 
-‎[05/04/2022, 09:54:51] Elliot: ![image](static/WA-elliot/00002801-STICKER-2022-04-05-09-54-51.webp)
+‎[05/04/2022, 09:54:50] Elliot: 
+
+![image](static/WA-elliot/00002800-STICKER-2022-04-05-09-54-50.webp)
+
+‎[05/04/2022, 09:54:51] Elliot: 
+
+![image](static/WA-elliot/00002801-STICKER-2022-04-05-09-54-51.webp)
 
 [05/04/2022, 09:54:57] Shane: Tango tank
 
-‎[05/04/2022, 09:55:00] Elliot: ![image](static/WA-elliot/00002803-STICKER-2022-04-05-09-55-00.webp)
+‎[05/04/2022, 09:55:00] Elliot: 
+
+![image](static/WA-elliot/00002803-STICKER-2022-04-05-09-55-00.webp)
 
 [05/04/2022, 09:55:06] Elliot: Loads ha ha Hax
 
@@ -26716,7 +27182,9 @@ Bitch
 
 [05/04/2022, 09:56:01] Shane: Hahaha
 
-‎[05/04/2022, 17:52:46] Shane: ![image](static/WA-elliot/00002809-PHOTO-2022-04-05-17-52-46.jpg)
+‎[05/04/2022, 17:52:46] Shane: 
+
+![image](static/WA-elliot/00002809-PHOTO-2022-04-05-17-52-46.jpg)
 
 [05/04/2022, 18:15:41] Elliot: Ha ha ha
 
@@ -26724,7 +27192,9 @@ Bitch
 
 [05/04/2022, 18:16:52] Shane: Pushing me out again it’s ok ✅
 
-‎[05/04/2022, 18:17:00] Shane: ![image](static/WA-elliot/00002813-PHOTO-2022-04-05-18-17-00.jpg)
+‎[05/04/2022, 18:17:00] Shane: 
+
+![image](static/WA-elliot/00002813-PHOTO-2022-04-05-18-17-00.jpg)
 
 [05/04/2022, 18:17:15] Elliot: Come over then
 
@@ -26744,7 +27214,9 @@ Bitch
 
 [05/04/2022, 18:18:27] Elliot: BARRED
 
-‎[05/04/2022, 18:18:29] Elliot: ![image](static/WA-elliot/00002823-STICKER-2022-04-05-18-18-29.webp)
+‎[05/04/2022, 18:18:29] Elliot: 
+
+![image](static/WA-elliot/00002823-STICKER-2022-04-05-18-18-29.webp)
 
 [05/04/2022, 18:18:39] Shane: 35th bday lol
 
@@ -26784,7 +27256,9 @@ Bitch
 
 [05/04/2022, 20:09:38] Shane: Nasty nasty girl
 
-‎[05/04/2022, 20:10:02] Shane: ![image](static/WA-elliot/00002843-STICKER-2022-04-05-20-10-02.webp)
+‎[05/04/2022, 20:10:02] Shane: 
+
+![image](static/WA-elliot/00002843-STICKER-2022-04-05-20-10-02.webp)
 
 [05/04/2022, 20:10:13] Shane: New party Bright light hehe
 
@@ -26792,7 +27266,9 @@ Bitch
 
 [05/04/2022, 20:23:58] Elliot: Lol
 
-‎[05/04/2022, 22:19:23] Shane: ![image](static/WA-elliot/00002847-PHOTO-2022-04-05-22-19-23.jpg)
+‎[05/04/2022, 22:19:23] Shane: 
+
+![image](static/WA-elliot/00002847-PHOTO-2022-04-05-22-19-23.jpg)
 
 [05/04/2022, 22:53:30] Elliot: Yes
 
@@ -26802,7 +27278,9 @@ Bitch
 
 [05/04/2022, 22:56:54] Shane: And you can bolocks not wasting my free token on that pile of shite lol
 
-‎[05/04/2022, 22:57:26] Shane: ![image](static/WA-elliot/00002852-PHOTO-2022-04-05-22-57-25.jpg)
+‎[05/04/2022, 22:57:26] Shane: 
+
+![image](static/WA-elliot/00002852-PHOTO-2022-04-05-22-57-25.jpg)
 
 [05/04/2022, 22:57:30] Shane: Heheh
 
@@ -26816,19 +27294,29 @@ Bitch
 
 [05/04/2022, 22:58:22] Shane: Hehe
 
-‎[05/04/2022, 22:58:38] Elliot: ![image](static/WA-elliot/00002859-STICKER-2022-04-05-22-58-38.webp)
+‎[05/04/2022, 22:58:38] Elliot: 
 
-‎[05/04/2022, 22:58:41] Elliot: ![image](static/WA-elliot/00002860-STICKER-2022-04-05-22-58-41.webp)
+![image](static/WA-elliot/00002859-STICKER-2022-04-05-22-58-38.webp)
 
-‎[05/04/2022, 22:58:52] Elliot: ![image](static/WA-elliot/00002861-STICKER-2022-04-05-22-58-52.webp)
+‎[05/04/2022, 22:58:41] Elliot: 
+
+![image](static/WA-elliot/00002860-STICKER-2022-04-05-22-58-41.webp)
+
+‎[05/04/2022, 22:58:52] Elliot: 
+
+![image](static/WA-elliot/00002861-STICKER-2022-04-05-22-58-52.webp)
 
 [05/04/2022, 22:59:06] Shane: Omg  I found all them the other day haha
 
-‎[05/04/2022, 22:59:21] Elliot: ![image](static/WA-elliot/00002863-STICKER-2022-04-05-22-59-21.webp)
+‎[05/04/2022, 22:59:21] Elliot: 
+
+![image](static/WA-elliot/00002863-STICKER-2022-04-05-22-59-21.webp)
 
 [05/04/2022, 22:59:44] Shane: Lol
 
-‎[05/04/2022, 23:00:39] Elliot: ![image](static/WA-elliot/00002865-STICKER-2022-04-05-23-00-39.webp)
+‎[05/04/2022, 23:00:39] Elliot: 
+
+![image](static/WA-elliot/00002865-STICKER-2022-04-05-23-00-39.webp)
 
 [05/04/2022, 23:01:04] Shane: Hehe
 
@@ -26836,19 +27324,29 @@ Bitch
 
 [05/04/2022, 23:04:45] Elliot: Ha ha ha
 
-‎[05/04/2022, 23:04:56] Elliot: ![image](static/WA-elliot/00002869-PHOTO-2022-04-05-23-04-56.jpg)
+‎[05/04/2022, 23:04:56] Elliot: 
 
-‎[05/04/2022, 23:05:46] Shane: ![image](static/WA-elliot/00002870-PHOTO-2022-04-05-23-05-46.jpg)
+![image](static/WA-elliot/00002869-PHOTO-2022-04-05-23-04-56.jpg)
+
+‎[05/04/2022, 23:05:46] Shane: 
+
+![image](static/WA-elliot/00002870-PHOTO-2022-04-05-23-05-46.jpg)
 
 [05/04/2022, 23:06:33] Elliot: Oooo hellllllo
 
-‎[05/04/2022, 23:06:56] Elliot: ![image](static/WA-elliot/00002872-STICKER-2022-04-05-23-06-56.webp)
+‎[05/04/2022, 23:06:56] Elliot: 
 
-‎[05/04/2022, 23:07:28] Shane: ![image](static/WA-elliot/00002873-STICKER-2022-04-05-23-07-27.webp)
+![image](static/WA-elliot/00002872-STICKER-2022-04-05-23-06-56.webp)
+
+‎[05/04/2022, 23:07:28] Shane: 
+
+![image](static/WA-elliot/00002873-STICKER-2022-04-05-23-07-27.webp)
 
 [05/04/2022, 23:07:43] Elliot: He he
 
-‎[05/04/2022, 23:07:47] Elliot: ![image](static/WA-elliot/00002875-STICKER-2022-04-05-23-07-47.webp)
+‎[05/04/2022, 23:07:47] Elliot: 
+
+![image](static/WA-elliot/00002875-STICKER-2022-04-05-23-07-47.webp)
 
 [05/04/2022, 23:07:49] Shane: The guck is that in my favourites for
 
@@ -26858,25 +27356,39 @@ Bitch
 
 [05/04/2022, 23:08:03] Elliot: So it fucking should be
 
-‎[05/04/2022, 23:08:11] Elliot: ![image](static/WA-elliot/00002880-STICKER-2022-04-05-23-08-11.webp)
+‎[05/04/2022, 23:08:11] Elliot: 
+
+![image](static/WA-elliot/00002880-STICKER-2022-04-05-23-08-11.webp)
 
 [05/04/2022, 23:08:16] Shane: Little bitch
 
-‎[05/04/2022, 23:08:19] Elliot: ![image](static/WA-elliot/00002882-STICKER-2022-04-05-23-08-19.webp)
+‎[05/04/2022, 23:08:19] Elliot: 
 
-‎[05/04/2022, 23:08:36] Shane: ![image](static/WA-elliot/00002883-PHOTO-2022-04-05-23-08-36.jpg)
+![image](static/WA-elliot/00002882-STICKER-2022-04-05-23-08-19.webp)
 
-‎[05/04/2022, 23:10:08] Elliot: ![image](static/WA-elliot/00002884-STICKER-2022-04-05-23-10-08.webp)
+‎[05/04/2022, 23:08:36] Shane: 
 
-‎[05/04/2022, 23:10:39] Shane: ![image](static/WA-elliot/00002885-PHOTO-2022-04-05-23-10-39.jpg)
+![image](static/WA-elliot/00002883-PHOTO-2022-04-05-23-08-36.jpg)
+
+‎[05/04/2022, 23:10:08] Elliot: 
+
+![image](static/WA-elliot/00002884-STICKER-2022-04-05-23-10-08.webp)
+
+‎[05/04/2022, 23:10:39] Shane: 
+
+![image](static/WA-elliot/00002885-PHOTO-2022-04-05-23-10-39.jpg)
 
 [05/04/2022, 23:10:44] Shane: Put that lol
 
 [05/04/2022, 23:11:11] Elliot: Omg ha ha ha
 
-‎[05/04/2022, 23:12:09] Elliot: ![image](static/WA-elliot/00002888-STICKER-2022-04-05-23-12-09.webp)
+‎[05/04/2022, 23:12:09] Elliot: 
 
-‎[06/04/2022, 11:38:35] Elliot: ![image](static/WA-elliot/00002889-PHOTO-2022-04-06-11-38-35.jpg)
+![image](static/WA-elliot/00002888-STICKER-2022-04-05-23-12-09.webp)
+
+‎[06/04/2022, 11:38:35] Elliot: 
+
+![image](static/WA-elliot/00002889-PHOTO-2022-04-06-11-38-35.jpg)
 
 [06/04/2022, 11:39:44] Shane: Rude but true
 
@@ -26890,7 +27402,9 @@ Bitch
 
 [06/04/2022, 11:41:08] Shane: Fat fingers
 
-‎[06/04/2022, 11:41:14] Elliot: ![image](static/WA-elliot/00002896-PHOTO-2022-04-06-11-41-14.jpg)
+‎[06/04/2022, 11:41:14] Elliot: 
+
+![image](static/WA-elliot/00002896-PHOTO-2022-04-06-11-41-14.jpg)
 
 [06/04/2022, 11:41:47] Shane: Steptoe and son  and daughter scrap merchants
 
@@ -26966,7 +27480,9 @@ But still
 
 [06/04/2022, 13:07:57] Shane: It’s not pc to say mens areaa
 
-‎[06/04/2022, 13:22:59] Shane: ![image](static/WA-elliot/00002933-PHOTO-2022-04-06-13-22-59.jpg)
+‎[06/04/2022, 13:22:59] Shane: 
+
+![image](static/WA-elliot/00002933-PHOTO-2022-04-06-13-22-59.jpg)
 
 [06/04/2022, 13:26:00] Elliot: Ooooo helllllo
 
@@ -26994,7 +27510,9 @@ But still
 
 [06/04/2022, 16:01:39] Elliot: Working
 
-‎[06/04/2022, 16:01:46] Elliot: ![image](static/WA-elliot/00002947-PHOTO-2022-04-06-16-01-46.jpg)
+‎[06/04/2022, 16:01:46] Elliot: 
+
+![image](static/WA-elliot/00002947-PHOTO-2022-04-06-16-01-46.jpg)
 
 [06/04/2022, 16:45:40] Shane: Wtf is that
 
@@ -27070,7 +27588,9 @@ But still
 
 [06/04/2022, 18:31:24] Shane: Just a bruise
 
-‎[06/04/2022, 19:05:07] Shane: ![image](static/WA-elliot/00002985-PHOTO-2022-04-06-19-05-07.jpg)
+‎[06/04/2022, 19:05:07] Shane: 
+
+![image](static/WA-elliot/00002985-PHOTO-2022-04-06-19-05-07.jpg)
 
 [06/04/2022, 19:05:36] Shane: Not major but people will stare at me so staying indoors
 
@@ -27082,7 +27602,9 @@ But still
 
 [06/04/2022, 20:49:08] Shane: Lol
 
-[06/04/2022, 20:49:17] Elliot: ![image](static/WA-elliot/00002991-PHOTO-2022-04-06-20-49-17.jpg)
+[06/04/2022, 20:49:17] Elliot: 
+
+![image](static/WA-elliot/00002991-PHOTO-2022-04-06-20-49-17.jpg)
 
 [06/04/2022, 20:49:22] Elliot: 🤣🤣🤣🤣
 
@@ -27098,11 +27620,15 @@ But still
 
 [06/04/2022, 20:50:00] Shane: Beauty in the basement
 
-[06/04/2022, 20:50:07] Elliot: ![image](static/WA-elliot/00002999-PHOTO-2022-04-06-20-50-07.jpg)
+[06/04/2022, 20:50:07] Elliot: 
+
+![image](static/WA-elliot/00002999-PHOTO-2022-04-06-20-50-07.jpg)
 
 [06/04/2022, 20:50:20] Shane: Lol
 
-[06/04/2022, 20:50:35] Shane: ![image](static/WA-elliot/00003001-PHOTO-2022-04-06-20-50-34.jpg)
+[06/04/2022, 20:50:35] Shane: 
+
+![image](static/WA-elliot/00003001-PHOTO-2022-04-06-20-50-34.jpg)
 
 [06/04/2022, 20:50:57] Shane: All that shit came out my pours
 
@@ -27128,7 +27654,9 @@ But still
 
 [06/04/2022, 20:58:31] Elliot: Ha ha
 
-[07/04/2022, 09:34:03] Shane: ![image](static/WA-elliot/00003014-PHOTO-2022-04-07-09-34-03.jpg)
+[07/04/2022, 09:34:03] Shane: 
+
+![image](static/WA-elliot/00003014-PHOTO-2022-04-07-09-34-03.jpg)
 
 [07/04/2022, 09:34:17] Shane: How the fuck is slim in the Freemasons
 
@@ -27204,7 +27732,9 @@ But still
 
 [07/04/2022, 09:42:28] Elliot: Ha ha very
 
-‎[07/04/2022, 09:43:06] Shane: ![image](static/WA-elliot/00003052-PHOTO-2022-04-07-09-43-06.jpg)
+‎[07/04/2022, 09:43:06] Shane: 
+
+![image](static/WA-elliot/00003052-PHOTO-2022-04-07-09-43-06.jpg)
 
 [07/04/2022, 09:43:33] Elliot: Can sign it with my DICK
 
@@ -27242,7 +27772,9 @@ But still
 
 [07/04/2022, 09:47:52] Elliot: Ha ha
 
-‎[07/04/2022, 09:49:21] Elliot: ![image](static/WA-elliot/00003071-PHOTO-2022-04-07-09-49-21.jpg)
+‎[07/04/2022, 09:49:21] Elliot: 
+
+![image](static/WA-elliot/00003071-PHOTO-2022-04-07-09-49-21.jpg)
 
 [07/04/2022, 09:53:24] Shane: Hehe
 
@@ -27254,7 +27786,9 @@ But still
 
 [07/04/2022, 13:13:13] Elliot: Lol
 
-‎[07/04/2022, 16:29:31] Shane: ![image](static/WA-elliot/00003077-PHOTO-2022-04-07-16-29-31.jpg)
+‎[07/04/2022, 16:29:31] Shane: 
+
+![image](static/WA-elliot/00003077-PHOTO-2022-04-07-16-29-31.jpg)
 
 [07/04/2022, 16:29:42] Shane: I’m gunna do trans
 
@@ -27272,11 +27806,15 @@ But still
 
 [07/04/2022, 16:30:29] Elliot: Lol
 
-‎[07/04/2022, 16:30:35] Elliot: ![image](static/WA-elliot/00003086-STICKER-2022-04-07-16-30-35.webp)
+‎[07/04/2022, 16:30:35] Elliot: 
+
+![image](static/WA-elliot/00003086-STICKER-2022-04-07-16-30-35.webp)
 
 [07/04/2022, 16:30:38] Shane: Hehe
 
-‎[07/04/2022, 20:00:27] Shane: ![image](static/WA-elliot/00003088-PHOTO-2022-04-07-20-00-27.jpg)
+‎[07/04/2022, 20:00:27] Shane: 
+
+![image](static/WA-elliot/00003088-PHOTO-2022-04-07-20-00-27.jpg)
 
 [07/04/2022, 20:00:30] Shane: You
 
@@ -27290,7 +27828,9 @@ But still
 
 [07/04/2022, 20:31:11] Elliot: Ha ha ha
 
-‎[07/04/2022, 20:31:14] Elliot: ![image](static/WA-elliot/00003095-STICKER-2022-04-07-20-31-14.webp)
+‎[07/04/2022, 20:31:14] Elliot: 
+
+![image](static/WA-elliot/00003095-STICKER-2022-04-07-20-31-14.webp)
 
 [07/04/2022, 20:43:34] Shane: Sexy ass
 
@@ -27306,21 +27846,31 @@ But still
 
 [07/04/2022, 21:00:43] Elliot: No
 
-‎[07/04/2022, 21:00:50] Elliot: ![image](static/WA-elliot/00003103-STICKER-2022-04-07-21-00-50.webp)
+‎[07/04/2022, 21:00:50] Elliot: 
+
+![image](static/WA-elliot/00003103-STICKER-2022-04-07-21-00-50.webp)
 
 [07/04/2022, 21:01:23] Shane: Lies infinity
 
-‎[07/04/2022, 21:01:59] Elliot: ![image](static/WA-elliot/00003105-PHOTO-2022-04-07-21-01-59.jpg)
+‎[07/04/2022, 21:01:59] Elliot: 
 
-‎[07/04/2022, 21:03:22] Shane: ![image](static/WA-elliot/00003106-PHOTO-2022-04-07-21-03-22.jpg)
+![image](static/WA-elliot/00003105-PHOTO-2022-04-07-21-01-59.jpg)
+
+‎[07/04/2022, 21:03:22] Shane: 
+
+![image](static/WA-elliot/00003106-PHOTO-2022-04-07-21-03-22.jpg)
 
 [07/04/2022, 21:03:27] Shane: Camp
 
 [07/04/2022, 21:03:42] Elliot: Ha ha ha
 
-‎[07/04/2022, 21:03:53] Elliot: ![image](static/WA-elliot/00003109-STICKER-2022-04-07-21-03-53.webp)
+‎[07/04/2022, 21:03:53] Elliot: 
 
-‎[07/04/2022, 21:04:08] Shane: ![image](static/WA-elliot/00003110-PHOTO-2022-04-07-21-04-08.jpg)
+![image](static/WA-elliot/00003109-STICKER-2022-04-07-21-03-53.webp)
+
+‎[07/04/2022, 21:04:08] Shane: 
+
+![image](static/WA-elliot/00003110-PHOTO-2022-04-07-21-04-08.jpg)
 
 [07/04/2022, 21:04:31] Elliot: 🤮
 
@@ -27394,7 +27944,9 @@ But still
 
 [09/04/2022, 15:42:36] Elliot: He he
 
-‎[09/04/2022, 15:42:44] Elliot: ![image](static/WA-elliot/00003147-STICKER-2022-04-09-15-42-44.webp)
+‎[09/04/2022, 15:42:44] Elliot: 
+
+![image](static/WA-elliot/00003147-STICKER-2022-04-09-15-42-44.webp)
 
 [09/04/2022, 15:43:22] Shane: Ooo I feel shit
 
@@ -27428,11 +27980,15 @@ But still
 
 [10/04/2022, 16:40:25] Elliot: What you done now ?
 
-‎[10/04/2022, 16:40:43] Shane: ![image](static/WA-elliot/00003164-PHOTO-2022-04-10-16-40-43.jpg)
+‎[10/04/2022, 16:40:43] Shane: 
+
+![image](static/WA-elliot/00003164-PHOTO-2022-04-10-16-40-43.jpg)
 
 [10/04/2022, 16:40:58] Shane: I forgot I bought them domains haha
 
-‎[10/04/2022, 16:41:12] Shane: ![image](static/WA-elliot/00003166-PHOTO-2022-04-10-16-41-12.jpg)
+‎[10/04/2022, 16:41:12] Shane: 
+
+![image](static/WA-elliot/00003166-PHOTO-2022-04-10-16-41-12.jpg)
 
 [10/04/2022, 16:41:16] Elliot: Omg ha ha yeah
 
@@ -27496,7 +28052,9 @@ But still
 
 [10/04/2022, 16:45:27] Shane: Who put that on
 
-‎[10/04/2022, 16:45:51] Elliot: ![image](static/WA-elliot/00003198-PHOTO-2022-04-10-16-45-51.jpg)
+‎[10/04/2022, 16:45:51] Elliot: 
+
+![image](static/WA-elliot/00003198-PHOTO-2022-04-10-16-45-51.jpg)
 
 [10/04/2022, 16:46:03] Elliot: He he
 
@@ -27518,7 +28076,9 @@ But still
 
 [10/04/2022, 17:06:27] Elliot: Ok babes
 
-‎[10/04/2022, 17:08:26] Elliot: ![image](static/WA-elliot/00003209-PHOTO-2022-04-10-17-08-26.jpg)
+‎[10/04/2022, 17:08:26] Elliot: 
+
+![image](static/WA-elliot/00003209-PHOTO-2022-04-10-17-08-26.jpg)
 
 [10/04/2022, 17:29:21] Shane: Errr no
 
@@ -27528,11 +28088,17 @@ But still
 
 [10/04/2022, 17:29:53] Elliot: That is the spelling 🤷🏼‍♂️
 
-‎[10/04/2022, 17:29:55] Elliot: ![image](static/WA-elliot/00003214-STICKER-2022-04-10-17-29-55.webp)
+‎[10/04/2022, 17:29:55] Elliot: 
 
-‎[10/04/2022, 17:29:57] Elliot: ![image](static/WA-elliot/00003215-STICKER-2022-04-10-17-29-57.webp)
+![image](static/WA-elliot/00003214-STICKER-2022-04-10-17-29-55.webp)
 
-‎[10/04/2022, 17:30:03] Elliot: ![image](static/WA-elliot/00003216-PHOTO-2022-04-10-17-30-03.jpg)
+‎[10/04/2022, 17:29:57] Elliot: 
+
+![image](static/WA-elliot/00003215-STICKER-2022-04-10-17-29-57.webp)
+
+‎[10/04/2022, 17:30:03] Elliot: 
+
+![image](static/WA-elliot/00003216-PHOTO-2022-04-10-17-30-03.jpg)
 
 [10/04/2022, 17:30:08] Shane: You missed the C
 
@@ -27558,7 +28124,9 @@ But still
 
 [10/04/2022, 17:31:10] Elliot: 76p
 
-‎[10/04/2022, 19:03:41] Elliot: ![image](static/WA-elliot/00003229-PHOTO-2022-04-10-19-03-41.jpg)
+‎[10/04/2022, 19:03:41] Elliot: 
+
+![image](static/WA-elliot/00003229-PHOTO-2022-04-10-19-03-41.jpg)
 
 [10/04/2022, 19:04:02] Shane: Hehe
 
@@ -27574,7 +28142,9 @@ But still
 
 [10/04/2022, 19:04:54] Elliot: NOW
 
-‎[10/04/2022, 19:05:29] Shane: ![image](static/WA-elliot/00003237-PHOTO-2022-04-10-19-05-29.jpg)
+‎[10/04/2022, 19:05:29] Shane: 
+
+![image](static/WA-elliot/00003237-PHOTO-2022-04-10-19-05-29.jpg)
 
 [10/04/2022, 19:05:45] Shane: Acid blast
 
@@ -27588,31 +28158,43 @@ But still
 
 [10/04/2022, 19:09:45] Shane: Camp
 
-‎[10/04/2022, 19:28:03] Elliot: ![image](static/WA-elliot/00003244-PHOTO-2022-04-10-19-28-03.jpg)
+‎[10/04/2022, 19:28:03] Elliot: 
+
+![image](static/WA-elliot/00003244-PHOTO-2022-04-10-19-28-03.jpg)
 
 [10/04/2022, 19:28:17] Shane: Haha
 
 [10/04/2022, 19:28:25] Shane: That’s was so fun lol
 
-‎[10/04/2022, 19:28:28] Elliot: ![image](static/WA-elliot/00003247-PHOTO-2022-04-10-19-28-28.jpg)
+‎[10/04/2022, 19:28:28] Elliot: 
 
-‎[10/04/2022, 19:29:14] Elliot: ![image](static/WA-elliot/00003248-PHOTO-2022-04-10-19-29-14.jpg)
+![image](static/WA-elliot/00003247-PHOTO-2022-04-10-19-28-28.jpg)
+
+‎[10/04/2022, 19:29:14] Elliot: 
+
+![image](static/WA-elliot/00003248-PHOTO-2022-04-10-19-29-14.jpg)
 
 [10/04/2022, 19:29:44] Shane: Rude
 
 [10/04/2022, 19:29:51] Shane: Wtf are you doing
 
-‎[10/04/2022, 19:29:52] Elliot: ![image](static/WA-elliot/00003251-PHOTO-2022-04-10-19-29-52.jpg)
+‎[10/04/2022, 19:29:52] Elliot: 
+
+![image](static/WA-elliot/00003251-PHOTO-2022-04-10-19-29-52.jpg)
 
 [10/04/2022, 19:29:55] Shane: Yes
 
-‎[10/04/2022, 19:30:08] Elliot: ![image](static/WA-elliot/00003253-PHOTO-2022-04-10-19-30-08.jpg)
+‎[10/04/2022, 19:30:08] Elliot: 
+
+![image](static/WA-elliot/00003253-PHOTO-2022-04-10-19-30-08.jpg)
 
 [10/04/2022, 19:30:31] Shane: Pissed up trash
 
 [10/04/2022, 19:30:41] Elliot: Errr yeah ha ha
 
-‎[10/04/2022, 19:33:07] Elliot: ![image](static/WA-elliot/00003256-PHOTO-2022-04-10-19-33-07.jpg)
+‎[10/04/2022, 19:33:07] Elliot: 
+
+![image](static/WA-elliot/00003256-PHOTO-2022-04-10-19-33-07.jpg)
 
 [10/04/2022, 19:33:36] Shane: I wear that all the time now lol
 
@@ -27632,7 +28214,9 @@ But still
 
 [11/04/2022, 16:17:37] Shane: You asked if I could count I said I had my account and payroll certificates it’s fine push me out
 
-‎[11/04/2022, 16:19:39] Shane: ![image](static/WA-elliot/00003268-PHOTO-2022-04-11-16-19-39.jpg)
+‎[11/04/2022, 16:19:39] Shane: 
+
+![image](static/WA-elliot/00003268-PHOTO-2022-04-11-16-19-39.jpg)
 
 [11/04/2022, 16:19:42] Shane: Slag
 
@@ -27656,7 +28240,9 @@ But still
 
 [11/04/2022, 16:43:59] Shane: No rent
 
-‎[11/04/2022, 16:44:10] Elliot: ![image](static/WA-elliot/00003280-STICKER-2022-04-11-16-44-10.webp)
+‎[11/04/2022, 16:44:10] Elliot: 
+
+![image](static/WA-elliot/00003280-STICKER-2022-04-11-16-44-10.webp)
 
 [11/04/2022, 16:44:37] Elliot: Is it because of the colour of my skin ?
 
@@ -27668,7 +28254,9 @@ But still
 
 [11/04/2022, 16:45:05] Shane: He’s racist
 
-‎[11/04/2022, 16:45:08] Elliot: ![image](static/WA-elliot/00003286-STICKER-2022-04-11-16-45-08.webp)
+‎[11/04/2022, 16:45:08] Elliot: 
+
+![image](static/WA-elliot/00003286-STICKER-2022-04-11-16-45-08.webp)
 
 [13/04/2022, 07:28:48] Elliot: WHAT
 
@@ -27688,7 +28276,9 @@ But still
 
 [13/04/2022, 07:29:14] Elliot: W
 
-‎[13/04/2022, 07:29:22] Elliot: ![image](static/WA-elliot/00003296-STICKER-2022-04-13-07-29-22.webp)
+‎[13/04/2022, 07:29:22] Elliot: 
+
+![image](static/WA-elliot/00003296-STICKER-2022-04-13-07-29-22.webp)
 
 [13/04/2022, 07:32:25] Shane: Just cloud stuff
 
@@ -27740,15 +28330,21 @@ But still
 
 [13/04/2022, 07:37:51] Elliot: Speak up dear
 
-‎[13/04/2022, 07:37:55] Elliot: ![image](static/WA-elliot/00003322-PHOTO-2022-04-13-07-37-55.jpg)
+‎[13/04/2022, 07:37:55] Elliot: 
 
-‎[13/04/2022, 07:38:40] Elliot: ![image](static/WA-elliot/00003323-PHOTO-2022-04-13-07-38-40.jpg)
+![image](static/WA-elliot/00003322-PHOTO-2022-04-13-07-37-55.jpg)
+
+‎[13/04/2022, 07:38:40] Elliot: 
+
+![image](static/WA-elliot/00003323-PHOTO-2022-04-13-07-38-40.jpg)
 
 [13/04/2022, 09:58:37] Shane: Like Kim Jong nonce
 
 [13/04/2022, 10:02:45] Elliot: Ha ha
 
-‎[13/04/2022, 10:03:54] Elliot: ![image](static/WA-elliot/00003326-PHOTO-2022-04-13-10-03-54.jpg)
+‎[13/04/2022, 10:03:54] Elliot: 
+
+![image](static/WA-elliot/00003326-PHOTO-2022-04-13-10-03-54.jpg)
 
 [13/04/2022, 12:54:39] Shane: Lol
 
@@ -27768,7 +28364,9 @@ But still
 
 [13/04/2022, 18:01:11] Shane: At all
 
-‎[13/04/2022, 18:01:11] Elliot: ![image](static/WA-elliot/00003336-STICKER-2022-04-13-18-01-11.webp)
+‎[13/04/2022, 18:01:11] Elliot: 
+
+![image](static/WA-elliot/00003336-STICKER-2022-04-13-18-01-11.webp)
 
 [13/04/2022, 18:01:13] Elliot: Working
 
@@ -27782,7 +28380,9 @@ But still
 
 [13/04/2022, 18:02:26] Shane: Wherever she is there’s trouble
 
-‎[13/04/2022, 18:02:30] Elliot: ![image](static/WA-elliot/00003343-PHOTO-2022-04-13-18-02-30.jpg)
+‎[13/04/2022, 18:02:30] Elliot: 
+
+![image](static/WA-elliot/00003343-PHOTO-2022-04-13-18-02-30.jpg)
 
 [13/04/2022, 18:02:56] Shane: Where the fuck is that at
 
@@ -27820,7 +28420,9 @@ But still
 
 [14/04/2022, 12:34:14] Shane: Right don’t get mad at me I can’t help it but I can’t come tonight. I’ve just checked my bank I have like £26 till next Friday 😳
 
-‎[14/04/2022, 12:34:19] Shane: ![image](static/WA-elliot/00003362-PHOTO-2022-04-14-12-34-19.jpg)
+‎[14/04/2022, 12:34:19] Shane: 
+
+![image](static/WA-elliot/00003362-PHOTO-2022-04-14-12-34-19.jpg)
 
 [14/04/2022, 12:35:17] Shane: I don’t where the fuck all my money has gone
 
@@ -27830,7 +28432,9 @@ But still
 
 [14/04/2022, 12:36:36] Elliot: Don’t worry about the ticket… I bought 5 for celebration… today is the day we take over…. and I’m sure we can buy you a drink babes 🙄
 
-‎[14/04/2022, 12:37:56] Shane: ![image](static/WA-elliot/00003367-PHOTO-2022-04-14-12-37-55.jpg)
+‎[14/04/2022, 12:37:56] Shane: 
+
+![image](static/WA-elliot/00003367-PHOTO-2022-04-14-12-37-55.jpg)
 
 [14/04/2022, 12:38:00] Shane: Savage
 
@@ -27900,7 +28504,9 @@ But still
 
 [17/04/2022, 13:19:54] Elliot: W
 
-‎[17/04/2022, 18:02:35] Elliot: ![image](static/WA-elliot/00003402-STICKER-2022-04-17-18-02-35.webp)
+‎[17/04/2022, 18:02:35] Elliot: 
+
+![image](static/WA-elliot/00003402-STICKER-2022-04-17-18-02-35.webp)
 
 [17/04/2022, 18:02:40] Elliot: NOW
 
@@ -27922,7 +28528,9 @@ But still
 
 [17/04/2022, 18:03:00] Shane: Babes
 
-‎[17/04/2022, 18:03:03] Elliot: ![image](static/WA-elliot/00003413-STICKER-2022-04-17-18-03-03.webp)
+‎[17/04/2022, 18:03:03] Elliot: 
+
+![image](static/WA-elliot/00003413-STICKER-2022-04-17-18-03-03.webp)
 
 [17/04/2022, 18:03:06] Shane: Been sleeping lol
 
@@ -27940,7 +28548,9 @@ But still
 
 [17/04/2022, 18:03:38] Elliot: I knew it
 
-‎[17/04/2022, 18:03:46] Elliot: ![image](static/WA-elliot/00003422-STICKER-2022-04-17-18-03-46.webp)
+‎[17/04/2022, 18:03:46] Elliot: 
+
+![image](static/WA-elliot/00003422-STICKER-2022-04-17-18-03-46.webp)
 
 [17/04/2022, 18:03:54] Shane: Woke up at 5 ish
 
@@ -27954,7 +28564,9 @@ But still
 
 [17/04/2022, 18:04:18] Elliot: We are finished
 
-‎[17/04/2022, 18:04:27] Elliot: ![image](static/WA-elliot/00003429-STICKER-2022-04-17-18-04-27.webp)
+‎[17/04/2022, 18:04:27] Elliot: 
+
+![image](static/WA-elliot/00003429-STICKER-2022-04-17-18-04-27.webp)
 
 [17/04/2022, 18:04:57] Shane: Oh babes wasn’t a suicidal overdose just a go to sleep for 12 hours
 
@@ -28032,7 +28644,9 @@ But still
 
 [21/04/2022, 20:34:31] Shane: NOW
 
-‎[21/04/2022, 20:34:48] Elliot: ![image](static/WA-elliot/00003468-PHOTO-2022-04-21-20-34-48.jpg)
+‎[21/04/2022, 20:34:48] Elliot: 
+
+![image](static/WA-elliot/00003468-PHOTO-2022-04-21-20-34-48.jpg)
 
 [21/04/2022, 20:35:36] Shane: Ooooo hot dogs
 
@@ -28058,13 +28672,19 @@ But still
 
 [21/04/2022, 22:48:10] Shane: Yeah them tablets I was on didn’t help
 
-‎[21/04/2022, 22:48:13] Elliot: ![image](static/WA-elliot/00003481-STICKER-2022-04-21-22-48-13.webp)
+‎[21/04/2022, 22:48:13] Elliot: 
 
-‎[21/04/2022, 22:48:18] Elliot: ![image](static/WA-elliot/00003482-STICKER-2022-04-21-22-48-18.webp)
+![image](static/WA-elliot/00003481-STICKER-2022-04-21-22-48-13.webp)
+
+‎[21/04/2022, 22:48:18] Elliot: 
+
+![image](static/WA-elliot/00003482-STICKER-2022-04-21-22-48-18.webp)
 
 [21/04/2022, 22:48:23] Shane: They blocked it
 
-‎[21/04/2022, 22:48:37] Elliot: ![image](static/WA-elliot/00003484-STICKER-2022-04-21-22-48-37.webp)
+‎[21/04/2022, 22:48:37] Elliot: 
+
+![image](static/WA-elliot/00003484-STICKER-2022-04-21-22-48-37.webp)
 
 [21/04/2022, 22:48:38] Shane: Plus I would have preferred it if we was out
 
@@ -28268,7 +28888,9 @@ But still
 
 [22/04/2022, 10:37:56] Elliot: Ha ha why can’t you ?
 
-‎[22/04/2022, 11:58:20] Elliot: ![image](static/WA-elliot/00003585-PHOTO-2022-04-22-11-58-20.jpg)
+‎[22/04/2022, 11:58:20] Elliot: 
+
+![image](static/WA-elliot/00003585-PHOTO-2022-04-22-11-58-20.jpg)
 
 [22/04/2022, 11:58:26] Elliot: That you ?
 
@@ -28284,13 +28906,17 @@ But still
 
 [22/04/2022, 12:15:42] Shane: Disgusting
 
-‎[22/04/2022, 12:22:58] Elliot: ![image](static/WA-elliot/00003593-STICKER-2022-04-22-12-22-58.webp)
+‎[22/04/2022, 12:22:58] Elliot: 
+
+![image](static/WA-elliot/00003593-STICKER-2022-04-22-12-22-58.webp)
 
 [22/04/2022, 19:51:26] Shane: you little bitch
 
 [22/04/2022, 20:36:20] Elliot: He he
 
-‎[22/04/2022, 21:31:47] Elliot: ![image](static/WA-elliot/00003596-PHOTO-2022-04-22-21-31-47.jpg)
+‎[22/04/2022, 21:31:47] Elliot: 
+
+![image](static/WA-elliot/00003596-PHOTO-2022-04-22-21-31-47.jpg)
 
 [22/04/2022, 21:31:51] Elliot: Get it
 
@@ -28314,15 +28940,21 @@ All that shit at the club
 
 [23/04/2022, 04:05:00] Elliot: I’m checking what the till have taken
 
-‎[23/04/2022, 04:05:10] Elliot: ![image](static/WA-elliot/00003606-STICKER-2022-04-23-04-05-10.webp)
+‎[23/04/2022, 04:05:10] Elliot: 
+
+![image](static/WA-elliot/00003606-STICKER-2022-04-23-04-05-10.webp)
 
 [23/04/2022, 16:21:25] Shane: NOW
 
-‎[23/04/2022, 16:21:42] Elliot: ![image](static/WA-elliot/00003608-STICKER-2022-04-23-16-21-42.webp)
+‎[23/04/2022, 16:21:42] Elliot: 
+
+![image](static/WA-elliot/00003608-STICKER-2022-04-23-16-21-42.webp)
 
 [23/04/2022, 16:21:58] Shane: I was up because I thought it was important to ask you what you was doing at 4 .am
 
-‎[23/04/2022, 16:22:05] Elliot: ![image](static/WA-elliot/00003610-STICKER-2022-04-23-16-22-05.webp)
+‎[23/04/2022, 16:22:05] Elliot: 
+
+![image](static/WA-elliot/00003610-STICKER-2022-04-23-16-22-05.webp)
 
 [23/04/2022, 16:22:11] Elliot: Checking up on me
 
@@ -28346,7 +28978,9 @@ All that shit at the club
 
 [23/04/2022, 21:48:38] Shane: What in the fucking fuck are you doing apart from doing Lucy’s orange faces job for another 40 mins
 
-‎[23/04/2022, 21:49:13] Elliot: ![image](static/WA-elliot/00003622-PHOTO-2022-04-23-21-49-13.jpg)
+‎[23/04/2022, 21:49:13] Elliot: 
+
+![image](static/WA-elliot/00003622-PHOTO-2022-04-23-21-49-13.jpg)
 
 [23/04/2022, 21:49:56] Shane: Omfg she will be in a torture chair by 11 with that on
 
@@ -28376,7 +29010,9 @@ All that shit at the club
 
 [24/04/2022, 02:00:29] Elliot: Might go home actually
 
-‎[24/04/2022, 02:24:47] Shane: ![image](static/WA-elliot/00003637-PHOTO-2022-04-24-02-24-47.jpg)
+‎[24/04/2022, 02:24:47] Shane: 
+
+![image](static/WA-elliot/00003637-PHOTO-2022-04-24-02-24-47.jpg)
 
 [24/04/2022, 02:25:03] Shane: They look like there shivering haha
 
@@ -28392,7 +29028,9 @@ All that shit at the club
 
 [24/04/2022, 11:07:43] Elliot: You are babes
 
-‎[24/04/2022, 18:49:48] Elliot: ![image](static/WA-elliot/00003645-PHOTO-2022-04-24-18-49-48.jpg)
+‎[24/04/2022, 18:49:48] Elliot: 
+
+![image](static/WA-elliot/00003645-PHOTO-2022-04-24-18-49-48.jpg)
 
 [24/04/2022, 22:33:16] Shane: Has she won omg been asleep
 
@@ -28418,7 +29056,9 @@ All that shit at the club
 
 [24/04/2022, 22:40:34] Shane: What the fuck now lol
 
-‎[24/04/2022, 22:40:44] Elliot: ![image](static/WA-elliot/00003658-PHOTO-2022-04-24-22-40-44.jpg)
+‎[24/04/2022, 22:40:44] Elliot: 
+
+![image](static/WA-elliot/00003658-PHOTO-2022-04-24-22-40-44.jpg)
 
 [24/04/2022, 22:41:14] Elliot: Now
 
@@ -28438,7 +29078,9 @@ All that shit at the club
 
 [24/04/2022, 22:41:28] Elliot: W
 
-‎[24/04/2022, 22:41:36] Elliot: ![image](static/WA-elliot/00003668-STICKER-2022-04-24-22-41-36.webp)
+‎[24/04/2022, 22:41:36] Elliot: 
+
+![image](static/WA-elliot/00003668-STICKER-2022-04-24-22-41-36.webp)
 
 [24/04/2022, 22:42:09] Shane: Just Woke up man go for a run I dunno
 
@@ -28448,9 +29090,13 @@ All that shit at the club
 
 [24/04/2022, 22:43:17] Shane: U birch
 
-‎[24/04/2022, 22:43:46] Elliot: ![image](static/WA-elliot/00003673-PHOTO-2022-04-24-22-43-46.jpg)
+‎[24/04/2022, 22:43:46] Elliot: 
 
-‎[25/04/2022, 07:42:14] Shane: ![image](static/WA-elliot/00003674-PHOTO-2022-04-25-07-42-14.jpg)
+![image](static/WA-elliot/00003673-PHOTO-2022-04-24-22-43-46.jpg)
+
+‎[25/04/2022, 07:42:14] Shane: 
+
+![image](static/WA-elliot/00003674-PHOTO-2022-04-25-07-42-14.jpg)
 
 [25/04/2022, 07:42:21] Shane: Lasted long
 
@@ -28470,7 +29116,9 @@ All that shit at the club
 
 [26/04/2022, 10:06:53] Elliot: Waiting for dice to come for a meeting so I can have a go at them
 
-‎[26/04/2022, 12:10:30] Elliot: ![image](static/WA-elliot/00003684-PHOTO-2022-04-26-12-10-30.jpg)
+‎[26/04/2022, 12:10:30] Elliot: 
+
+![image](static/WA-elliot/00003684-PHOTO-2022-04-26-12-10-30.jpg)
 
 [26/04/2022, 13:13:03] Shane: What when I lay on somebody on Sunday
 
@@ -28494,7 +29142,9 @@ All that shit at the club
 
 [26/04/2022, 20:27:53] Shane: You little bitch
 
-‎[26/04/2022, 20:28:18] Elliot: ![image](static/WA-elliot/00003696-STICKER-2022-04-26-20-28-18.webp)
+‎[26/04/2022, 20:28:18] Elliot: 
+
+![image](static/WA-elliot/00003696-STICKER-2022-04-26-20-28-18.webp)
 
 [26/04/2022, 23:02:48] Shane: What the fuck have you been doing all day
 
@@ -28666,7 +29316,9 @@ All that shit at the club
 
 [30/04/2022, 03:04:58] Elliot: You tit
 
-‎[30/04/2022, 03:05:02] Elliot: ![image](static/WA-elliot/00003782-PHOTO-2022-04-30-03-05-02.jpg)
+‎[30/04/2022, 03:05:02] Elliot: 
+
+![image](static/WA-elliot/00003782-PHOTO-2022-04-30-03-05-02.jpg)
 
 [30/04/2022, 03:05:06] Elliot: He he
 
@@ -28688,13 +29340,17 @@ All that shit at the club
 
 [30/04/2022, 03:10:10] Shane: I thought it was tonight hahahaha
 
-‎[30/04/2022, 03:10:24] Elliot: ![image](static/WA-elliot/00003793-PHOTO-2022-04-30-03-10-24.jpg)
+‎[30/04/2022, 03:10:24] Elliot: 
+
+![image](static/WA-elliot/00003793-PHOTO-2022-04-30-03-10-24.jpg)
 
 [30/04/2022, 19:26:15] Shane: You Fucking little bitch
 
 [30/04/2022, 19:26:22] Shane: What the fuck now
 
-‎[30/04/2022, 19:37:18] Elliot: ![image](static/WA-elliot/00003796-PHOTO-2022-04-30-19-37-18.jpg)
+‎[30/04/2022, 19:37:18] Elliot: 
+
+![image](static/WA-elliot/00003796-PHOTO-2022-04-30-19-37-18.jpg)
 
 [30/04/2022, 21:08:48] Shane: Where the fuck have you put my little legs
 
@@ -28716,11 +29372,15 @@ All that shit at the club
 
 [01/05/2022, 13:09:07] Elliot: Look ?
 
-‎[01/05/2022, 13:09:10] Elliot: ![image](static/WA-elliot/00003807-STICKER-2022-05-01-13-09-10.webp)
+‎[01/05/2022, 13:09:10] Elliot: 
+
+![image](static/WA-elliot/00003807-STICKER-2022-05-01-13-09-10.webp)
 
 [01/05/2022, 13:51:10] Shane: I just meant lol
 
-‎[01/05/2022, 13:51:41] Elliot: ![image](static/WA-elliot/00003809-PHOTO-2022-05-01-13-51-41.jpg)
+‎[01/05/2022, 13:51:41] Elliot: 
+
+![image](static/WA-elliot/00003809-PHOTO-2022-05-01-13-51-41.jpg)
 
 [01/05/2022, 13:51:49] Shane: Disgusting
 
@@ -28756,7 +29416,9 @@ All that shit at the club
 
 [01/05/2022, 19:14:16] Elliot: Tit
 
-‎[01/05/2022, 19:14:18] Elliot: ![image](static/WA-elliot/00003830-STICKER-2022-05-01-19-14-18.webp)
+‎[01/05/2022, 19:14:18] Elliot: 
+
+![image](static/WA-elliot/00003830-STICKER-2022-05-01-19-14-18.webp)
 
 [01/05/2022, 19:14:23] Shane: To tut tut
 
@@ -28786,9 +29448,13 @@ All that shit at the club
 
 [01/05/2022, 19:16:07] Elliot: Omg
 
-‎[01/05/2022, 19:16:15] Elliot: ![image](static/WA-elliot/00003845-STICKER-2022-05-01-19-16-15.webp)
+‎[01/05/2022, 19:16:15] Elliot: 
 
-‎[01/05/2022, 19:16:17] Elliot: ![image](static/WA-elliot/00003846-STICKER-2022-05-01-19-16-17.webp)
+![image](static/WA-elliot/00003845-STICKER-2022-05-01-19-16-15.webp)
+
+‎[01/05/2022, 19:16:17] Elliot: 
+
+![image](static/WA-elliot/00003846-STICKER-2022-05-01-19-16-17.webp)
 
 [01/05/2022, 19:16:28] Shane: Acid blast my face
 
@@ -28806,21 +29472,35 @@ All that shit at the club
 
 [01/05/2022, 19:25:00] Elliot: 👀
 
-‎[01/05/2022, 19:28:15] Elliot: ![image](static/WA-elliot/00003855-PHOTO-2022-05-01-19-28-15.jpg)
+‎[01/05/2022, 19:28:15] Elliot: 
+
+![image](static/WA-elliot/00003855-PHOTO-2022-05-01-19-28-15.jpg)
 
 [01/05/2022, 19:28:30] Shane: Little bitch
 
-‎[01/05/2022, 19:28:31] Elliot: ![image](static/WA-elliot/00003857-PHOTO-2022-05-01-19-28-31.jpg)
+‎[01/05/2022, 19:28:31] Elliot: 
 
-‎[01/05/2022, 19:28:41] Elliot: ![image](static/WA-elliot/00003858-PHOTO-2022-05-01-19-28-41.jpg)
+![image](static/WA-elliot/00003857-PHOTO-2022-05-01-19-28-31.jpg)
 
-‎[01/05/2022, 19:28:45] Elliot: ![image](static/WA-elliot/00003859-PHOTO-2022-05-01-19-28-45.jpg)
+‎[01/05/2022, 19:28:41] Elliot: 
 
-‎[01/05/2022, 19:28:53] Elliot: ![image](static/WA-elliot/00003860-STICKER-2022-05-01-19-28-53.webp)
+![image](static/WA-elliot/00003858-PHOTO-2022-05-01-19-28-41.jpg)
 
-‎[01/05/2022, 19:28:56] Elliot: ![image](static/WA-elliot/00003861-STICKER-2022-05-01-19-28-56.webp)
+‎[01/05/2022, 19:28:45] Elliot: 
 
-‎[01/05/2022, 19:29:25] Elliot: ![image](static/WA-elliot/00003862-STICKER-2022-05-01-19-29-25.webp)
+![image](static/WA-elliot/00003859-PHOTO-2022-05-01-19-28-45.jpg)
+
+‎[01/05/2022, 19:28:53] Elliot: 
+
+![image](static/WA-elliot/00003860-STICKER-2022-05-01-19-28-53.webp)
+
+‎[01/05/2022, 19:28:56] Elliot: 
+
+![image](static/WA-elliot/00003861-STICKER-2022-05-01-19-28-56.webp)
+
+‎[01/05/2022, 19:29:25] Elliot: 
+
+![image](static/WA-elliot/00003862-STICKER-2022-05-01-19-29-25.webp)
 
 [02/05/2022, 16:39:13] Shane: NOW
 
@@ -28836,7 +29516,9 @@ All that shit at the club
 
 [02/05/2022, 16:40:15] Shane: Sunday roast mmmm yes please
 
-‎[02/05/2022, 16:40:27] Elliot: ![image](static/WA-elliot/00003870-PHOTO-2022-05-02-16-40-27.jpg)
+‎[02/05/2022, 16:40:27] Elliot: 
+
+![image](static/WA-elliot/00003870-PHOTO-2022-05-02-16-40-27.jpg)
 
 [02/05/2022, 17:55:51] Shane: How’s the plan going
 
@@ -28844,7 +29526,9 @@ All that shit at the club
 
 [02/05/2022, 18:36:17] Elliot: Coz your always asleep
 
-‎[03/05/2022, 08:44:28] Elliot: ![image](static/WA-elliot/00003874-PHOTO-2022-05-03-08-44-28.jpg)
+‎[03/05/2022, 08:44:28] Elliot: 
+
+![image](static/WA-elliot/00003874-PHOTO-2022-05-03-08-44-28.jpg)
 
 [03/05/2022, 13:41:40] Shane: Lol
 
@@ -28856,7 +29540,9 @@ All that shit at the club
 
 [03/05/2022, 14:18:41] Elliot: But must have sent it to someone else ha ha ha
 
-‎[03/05/2022, 14:18:50] Elliot: ![image](static/WA-elliot/00003880-PHOTO-2022-05-03-14-18-50.jpg)
+‎[03/05/2022, 14:18:50] Elliot: 
+
+![image](static/WA-elliot/00003880-PHOTO-2022-05-03-14-18-50.jpg)
 
 [03/05/2022, 14:23:54] Shane: Nasty
 
@@ -28876,19 +29562,25 @@ All that shit at the club
 
 [04/05/2022, 18:54:23] Elliot: Ha ha
 
-‎[04/05/2022, 18:54:29] Elliot: ![image](static/WA-elliot/00003890-STICKER-2022-05-04-18-54-29.webp)
+‎[04/05/2022, 18:54:29] Elliot: 
+
+![image](static/WA-elliot/00003890-STICKER-2022-05-04-18-54-29.webp)
 
 [04/05/2022, 20:28:04] Shane: What the guck have you been doing
 
 [04/05/2022, 20:28:07] Shane: All day
 
-‎[04/05/2022, 20:45:44] Shane: ![image](static/WA-elliot/00003893-PHOTO-2022-05-04-20-45-44.jpg)
+‎[04/05/2022, 20:45:44] Shane: 
+
+![image](static/WA-elliot/00003893-PHOTO-2022-05-04-20-45-44.jpg)
 
 [04/05/2022, 21:05:05] Elliot: Ha ha ha
 
 [04/05/2022, 21:05:07] Elliot: Akbar
 
-‎[04/05/2022, 21:23:21] Elliot: ![image](static/WA-elliot/00003896-PHOTO-2022-05-04-21-23-21.jpg)
+‎[04/05/2022, 21:23:21] Elliot: 
+
+![image](static/WA-elliot/00003896-PHOTO-2022-05-04-21-23-21.jpg)
 
 [05/05/2022, 07:51:27] Shane: Set up a new attraction Your very own deal or no deal. But run it as no deal, no deal but nobody knows that charge people to take part. BAM profit
 
@@ -28956,7 +29648,9 @@ All that shit at the club
 
 [06/05/2022, 18:00:50] Elliot: Ha ha ha
 
-‎[06/05/2022, 20:27:14] Elliot: ![image](static/WA-elliot/00003930-PHOTO-2022-05-06-20-27-14.jpg)
+‎[06/05/2022, 20:27:14] Elliot: 
+
+![image](static/WA-elliot/00003930-PHOTO-2022-05-06-20-27-14.jpg)
 
 [06/05/2022, 20:56:43] Shane: BARRED
 
@@ -29010,7 +29704,9 @@ All that shit at the club
 
 [10/05/2022, 14:10:54] Elliot: Ha ha yeah
 
-‎[10/05/2022, 14:11:06] Elliot: ![image](static/WA-elliot/00003957-STICKER-2022-05-10-14-11-06.webp)
+‎[10/05/2022, 14:11:06] Elliot: 
+
+![image](static/WA-elliot/00003957-STICKER-2022-05-10-14-11-06.webp)
 
 [10/05/2022, 14:11:47] Shane: What the fuck are you doing
 
@@ -29020,7 +29716,9 @@ All that shit at the club
 
 [10/05/2022, 16:10:03] Shane: I’ve had job club on the phone
 
-‎[10/05/2022, 16:10:05] Elliot: ![image](static/WA-elliot/00003962-PHOTO-2022-05-10-16-10-05.jpg)
+‎[10/05/2022, 16:10:05] Elliot: 
+
+![image](static/WA-elliot/00003962-PHOTO-2022-05-10-16-10-05.jpg)
 
 [10/05/2022, 16:10:11] Elliot: Omg
 
@@ -29040,15 +29738,21 @@ All that shit at the club
 
 [10/05/2022, 16:10:58] Elliot: True
 
-‎[10/05/2022, 16:11:11] Elliot: ![image](static/WA-elliot/00003972-STICKER-2022-05-10-16-11-11.webp)
+‎[10/05/2022, 16:11:11] Elliot: 
 
-‎[10/05/2022, 16:11:13] Elliot: ![image](static/WA-elliot/00003973-STICKER-2022-05-10-16-11-13.webp)
+![image](static/WA-elliot/00003972-STICKER-2022-05-10-16-11-11.webp)
+
+‎[10/05/2022, 16:11:13] Elliot: 
+
+![image](static/WA-elliot/00003973-STICKER-2022-05-10-16-11-13.webp)
 
 [10/05/2022, 16:16:09] Elliot: Just tell them your mental and your gay and abused by them upstairs
 
 [10/05/2022, 16:29:11] Shane: Told them that first time. Different personality today. I was a nun
 
-‎[10/05/2022, 16:48:14] Elliot: ![image](static/WA-elliot/00003976-PHOTO-2022-05-10-16-48-14.jpg)
+‎[10/05/2022, 16:48:14] Elliot: 
+
+![image](static/WA-elliot/00003976-PHOTO-2022-05-10-16-48-14.jpg)
 
 [10/05/2022, 19:58:29] Shane: Who the fuck designed that roast logo
 
@@ -29056,23 +29760,31 @@ All that shit at the club
 
 [10/05/2022, 19:59:10] Elliot: It’s sexy as fuck
 
-‎[10/05/2022, 19:59:17] Elliot: ![image](static/WA-elliot/00003980-PHOTO-2022-05-10-19-59-17.jpg)
+‎[10/05/2022, 19:59:17] Elliot: 
+
+![image](static/WA-elliot/00003980-PHOTO-2022-05-10-19-59-17.jpg)
 
 [10/05/2022, 19:59:56] Shane: Well
 
-‎[10/05/2022, 19:59:56] Elliot: ![image](static/WA-elliot/00003982-STICKER-2022-05-10-19-59-56.webp)
+‎[10/05/2022, 19:59:56] Elliot: 
+
+![image](static/WA-elliot/00003982-STICKER-2022-05-10-19-59-56.webp)
 
 [10/05/2022, 19:59:58] Shane: No
 
 [10/05/2022, 20:00:05] Elliot: Same same
 
-‎[10/05/2022, 20:00:09] Elliot: ![image](static/WA-elliot/00003985-STICKER-2022-05-10-20-00-09.webp)
+‎[10/05/2022, 20:00:09] Elliot: 
+
+![image](static/WA-elliot/00003985-STICKER-2022-05-10-20-00-09.webp)
 
 [10/05/2022, 20:00:46] Shane: Who did
 
 [10/05/2022, 20:00:48] Shane: It
 
-‎[10/05/2022, 20:00:58] Shane: ![image](static/WA-elliot/00003988-PHOTO-2022-05-10-20-00-58.jpg)
+‎[10/05/2022, 20:00:58] Shane: 
+
+![image](static/WA-elliot/00003988-PHOTO-2022-05-10-20-00-58.jpg)
 
 [10/05/2022, 20:01:04] Elliot: Lerone I think
 
@@ -29084,7 +29796,9 @@ All that shit at the club
 
 [10/05/2022, 20:02:15] Elliot: 🤔
 
-‎[10/05/2022, 20:02:31] Elliot: ![image](static/WA-elliot/00003994-PHOTO-2022-05-10-20-02-31.jpg)
+‎[10/05/2022, 20:02:31] Elliot: 
+
+![image](static/WA-elliot/00003994-PHOTO-2022-05-10-20-02-31.jpg)
 
 [10/05/2022, 20:02:40] Shane: It’s a screen shot I think. They do that when you blow them up
 
@@ -29112,7 +29826,9 @@ All that shit at the club
 
 [10/05/2022, 21:25:02] Elliot: Omfg
 
-‎[10/05/2022, 21:25:27] Elliot: ![image](static/WA-elliot/00004008-PHOTO-2022-05-10-21-25-27.jpg)
+‎[10/05/2022, 21:25:27] Elliot: 
+
+![image](static/WA-elliot/00004008-PHOTO-2022-05-10-21-25-27.jpg)
 
 [10/05/2022, 21:25:30] Shane: Wtf are
 
@@ -29138,7 +29854,9 @@ All that shit at the club
 
 [10/05/2022, 22:07:17] Shane: My computer keeps calling me a nonce
 
-‎[10/05/2022, 22:07:21] Shane: ![image](static/WA-elliot/00004021-PHOTO-2022-05-10-22-07-21.jpg)
+‎[10/05/2022, 22:07:21] Shane: 
+
+![image](static/WA-elliot/00004021-PHOTO-2022-05-10-22-07-21.jpg)
 
 [10/05/2022, 22:07:30] Elliot: Ha ha ha ha wonder why
 
@@ -29170,7 +29888,9 @@ All that shit at the club
 
 [10/05/2022, 22:25:40] Elliot: To busy on your  Noncy computer
 
-‎[10/05/2022, 22:25:47] Elliot: ![image](static/WA-elliot/00004037-STICKER-2022-05-10-22-25-47.webp)
+‎[10/05/2022, 22:25:47] Elliot: 
+
+![image](static/WA-elliot/00004037-STICKER-2022-05-10-22-25-47.webp)
 
 [10/05/2022, 22:26:52] Shane: Building  eCommerce shop babes
 
@@ -29186,7 +29906,9 @@ All that shit at the club
 
 [10/05/2022, 23:46:34] Elliot: Arsed
 
-‎[10/05/2022, 23:46:35] Elliot: ![image](static/WA-elliot/00004045-STICKER-2022-05-10-23-46-35.webp)
+‎[10/05/2022, 23:46:35] Elliot: 
+
+![image](static/WA-elliot/00004045-STICKER-2022-05-10-23-46-35.webp)
 
 [10/05/2022, 23:47:13] Shane: God I can’t get big black cock pff my mind
 
@@ -29196,7 +29918,9 @@ All that shit at the club
 
 [10/05/2022, 23:47:43] Elliot: You need to fuck him
 
-‎[10/05/2022, 23:48:10] Elliot: ![image](static/WA-elliot/00004050-STICKER-2022-05-10-23-48-10.webp)
+‎[10/05/2022, 23:48:10] Elliot: 
+
+![image](static/WA-elliot/00004050-STICKER-2022-05-10-23-48-10.webp)
 
 [10/05/2022, 23:48:15] Elliot: He he
 
@@ -29212,11 +29936,17 @@ All that shit at the club
 
 [11/05/2022, 20:09:19] Shane: Omg wtf the fuck have you done now?
 
-‎[11/05/2022, 20:15:08] Elliot: ![image](static/WA-elliot/00004058-PHOTO-2022-05-11-20-15-08.jpg)
+‎[11/05/2022, 20:15:08] Elliot: 
 
-‎[11/05/2022, 20:15:14] Elliot: ![image](static/WA-elliot/00004059-PHOTO-2022-05-11-20-15-14.jpg)
+![image](static/WA-elliot/00004058-PHOTO-2022-05-11-20-15-08.jpg)
 
-‎[11/05/2022, 21:20:30] Elliot: ![image](static/WA-elliot/00004060-PHOTO-2022-05-11-21-20-30.jpg)
+‎[11/05/2022, 20:15:14] Elliot: 
+
+![image](static/WA-elliot/00004059-PHOTO-2022-05-11-20-15-14.jpg)
+
+‎[11/05/2022, 21:20:30] Elliot: 
+
+![image](static/WA-elliot/00004060-PHOTO-2022-05-11-21-20-30.jpg)
 
 [11/05/2022, 22:10:40] Shane: Little bitch
 
@@ -29264,7 +29994,9 @@ All that shit at the club
 
 [12/05/2022, 15:06:49] Shane: Bye
 
-‎[12/05/2022, 15:11:25] Elliot: ![image](static/WA-elliot/00004084-PHOTO-2022-05-12-15-11-25.jpg)
+‎[12/05/2022, 15:11:25] Elliot: 
+
+![image](static/WA-elliot/00004084-PHOTO-2022-05-12-15-11-25.jpg)
 
 [12/05/2022, 15:11:25] Elliot: He he
 
@@ -29304,7 +30036,9 @@ All that shit at the club
 
 [12/05/2022, 18:29:10] Elliot: NOW
 
-‎[12/05/2022, 19:01:34] Elliot: ![image](static/WA-elliot/00004104-PHOTO-2022-05-12-19-01-34.jpg)
+‎[12/05/2022, 19:01:34] Elliot: 
+
+![image](static/WA-elliot/00004104-PHOTO-2022-05-12-19-01-34.jpg)
 
 [12/05/2022, 19:35:14] Shane: Sorry been busy
 
@@ -29312,11 +30046,15 @@ All that shit at the club
 
 [12/05/2022, 19:36:17] Shane: I did it
 
-‎[12/05/2022, 19:54:50] Shane: ![image](static/WA-elliot/00004108-PHOTO-2022-05-12-19-54-50.jpg)
+‎[12/05/2022, 19:54:50] Shane: 
+
+![image](static/WA-elliot/00004108-PHOTO-2022-05-12-19-54-50.jpg)
 
 [12/05/2022, 19:54:58] Shane: hehe
 
-‎[12/05/2022, 19:55:47] Elliot: ![image](static/WA-elliot/00004110-PHOTO-2022-05-12-19-55-47.jpg)
+‎[12/05/2022, 19:55:47] Elliot: 
+
+![image](static/WA-elliot/00004110-PHOTO-2022-05-12-19-55-47.jpg)
 
 [12/05/2022, 19:55:55] Elliot: This is the lettering
 
@@ -29350,7 +30088,9 @@ All that shit at the club
 
 [12/05/2022, 22:05:05] Shane: Why the fuck are you doing
 
-‎[12/05/2022, 22:05:55] Elliot: ![image](static/WA-elliot/00004127-PHOTO-2022-05-12-22-05-55.jpg)
+‎[12/05/2022, 22:05:55] Elliot: 
+
+![image](static/WA-elliot/00004127-PHOTO-2022-05-12-22-05-55.jpg)
 
 [12/05/2022, 22:06:04] Shane: Filth
 
@@ -29368,7 +30108,9 @@ All that shit at the club
 
 [12/05/2022, 22:22:17] Elliot: Ok
 
-‎[12/05/2022, 22:23:11] Elliot: ![image](static/WA-elliot/00004136-PHOTO-2022-05-12-22-23-11.jpg)
+‎[12/05/2022, 22:23:11] Elliot: 
+
+![image](static/WA-elliot/00004136-PHOTO-2022-05-12-22-23-11.jpg)
 
 [12/05/2022, 22:25:10] Shane: It’s not lol I’ve put that there.
 
@@ -29380,7 +30122,9 @@ All that shit at the club
 
 [13/05/2022, 18:21:26] Shane: You fucking little bitch
 
-‎[13/05/2022, 19:30:35] Elliot: ![image](static/WA-elliot/00004142-PHOTO-2022-05-13-19-30-35.jpg)
+‎[13/05/2022, 19:30:35] Elliot: 
+
+![image](static/WA-elliot/00004142-PHOTO-2022-05-13-19-30-35.jpg)
 
 [13/05/2022, 23:11:59] Shane: Omg
 
@@ -29404,7 +30148,9 @@ All that shit at the club
 
 [14/05/2022, 16:09:23] Elliot: No. That was when it was on lol
 
-‎[14/05/2022, 16:09:38] Elliot: ![image](static/WA-elliot/00004154-PHOTO-2022-05-14-16-09-38.jpg)
+‎[14/05/2022, 16:09:38] Elliot: 
+
+![image](static/WA-elliot/00004154-PHOTO-2022-05-14-16-09-38.jpg)
 
 [14/05/2022, 16:18:31] Shane: Oh haha thought you was being cheeky
 
@@ -29444,7 +30190,9 @@ All that shit at the club
 
 [14/05/2022, 17:35:01] Elliot: 🤷🏼‍♂️
 
-‎[14/05/2022, 17:46:30] Shane: ![image](static/WA-elliot/00004174-PHOTO-2022-05-14-17-46-29.jpg)
+‎[14/05/2022, 17:46:30] Shane: 
+
+![image](static/WA-elliot/00004174-PHOTO-2022-05-14-17-46-29.jpg)
 
 [14/05/2022, 17:46:44] Shane: We was in lockdown wasn’t we?
 
@@ -29452,7 +30200,9 @@ All that shit at the club
 
 [14/05/2022, 17:47:10] Shane: Oh I just changed it that day lol
 
-‎[14/05/2022, 17:47:19] Elliot: ![image](static/WA-elliot/00004178-PHOTO-2022-05-14-17-47-19.jpg)
+‎[14/05/2022, 17:47:19] Elliot: 
+
+![image](static/WA-elliot/00004178-PHOTO-2022-05-14-17-47-19.jpg)
 
 [14/05/2022, 17:47:21] Shane: I was like what the fuck
 
@@ -29516,21 +30266,33 @@ All that shit at the club
 
 [14/05/2022, 18:06:49] Shane: Lol you can put ads on it earn through clicks
 
-‎[14/05/2022, 18:07:15] Elliot: ![image](static/WA-elliot/00004210-PHOTO-2022-05-14-18-07-15.jpg)
+‎[14/05/2022, 18:07:15] Elliot: 
 
-‎[14/05/2022, 18:07:23] Elliot: ![image](static/WA-elliot/00004211-PHOTO-2022-05-14-18-07-23.jpg)
+![image](static/WA-elliot/00004210-PHOTO-2022-05-14-18-07-15.jpg)
 
-‎[14/05/2022, 18:07:29] Elliot: ![image](static/WA-elliot/00004212-PHOTO-2022-05-14-18-07-29.jpg)
+‎[14/05/2022, 18:07:23] Elliot: 
 
-‎[14/05/2022, 18:07:36] Elliot: ![image](static/WA-elliot/00004213-PHOTO-2022-05-14-18-07-36.jpg)
+![image](static/WA-elliot/00004211-PHOTO-2022-05-14-18-07-23.jpg)
 
-‎[14/05/2022, 18:07:46] Elliot: ![image](static/WA-elliot/00004214-PHOTO-2022-05-14-18-07-46.jpg)
+‎[14/05/2022, 18:07:29] Elliot: 
+
+![image](static/WA-elliot/00004212-PHOTO-2022-05-14-18-07-29.jpg)
+
+‎[14/05/2022, 18:07:36] Elliot: 
+
+![image](static/WA-elliot/00004213-PHOTO-2022-05-14-18-07-36.jpg)
+
+‎[14/05/2022, 18:07:46] Elliot: 
+
+![image](static/WA-elliot/00004214-PHOTO-2022-05-14-18-07-46.jpg)
 
 [14/05/2022, 18:07:50] Shane: Bam
 
 [14/05/2022, 18:07:53] Elliot: Put them all up NOW
 
-‎[14/05/2022, 18:08:03] Elliot: ![image](static/WA-elliot/00004217-PHOTO-2022-05-14-18-08-03.jpg)
+‎[14/05/2022, 18:08:03] Elliot: 
+
+![image](static/WA-elliot/00004217-PHOTO-2022-05-14-18-08-03.jpg)
 
 [14/05/2022, 18:08:06] Elliot: He he
 
@@ -29544,13 +30306,17 @@ All that shit at the club
 
 [14/05/2022, 18:08:41] Elliot: Oh Lerone
 
-‎[14/05/2022, 18:10:13] Shane: ![image](static/WA-elliot/00004224-PHOTO-2022-05-14-18-10-13.jpg)
+‎[14/05/2022, 18:10:13] Shane: 
+
+![image](static/WA-elliot/00004224-PHOTO-2022-05-14-18-10-13.jpg)
 
 [14/05/2022, 18:10:47] Shane: Toasty Roasty Toasty
 
 [14/05/2022, 18:37:56] Elliot: Taxi Taxi
 
-‎[14/05/2022, 20:10:49] Shane: ![image](static/WA-elliot/00004227-PHOTO-2022-05-14-20-10-49.jpg)
+‎[14/05/2022, 20:10:49] Shane: 
+
+![image](static/WA-elliot/00004227-PHOTO-2022-05-14-20-10-49.jpg)
 
 [14/05/2022, 20:11:26] Elliot: Don’t use them anymore babes
 
@@ -29566,7 +30332,9 @@ All that shit at the club
 
 [14/05/2022, 20:12:15] Shane: Buy
 
-‎[14/05/2022, 20:12:23] Elliot: ![image](static/WA-elliot/00004235-PHOTO-2022-05-14-20-12-23.jpg)
+‎[14/05/2022, 20:12:23] Elliot: 
+
+![image](static/WA-elliot/00004235-PHOTO-2022-05-14-20-12-23.jpg)
 
 [14/05/2022, 20:13:04] Shane: Do you change the design each day?
 
@@ -29576,7 +30344,9 @@ All that shit at the club
 
 [14/05/2022, 20:14:22] Elliot: Lol
 
-‎[15/05/2022, 18:04:00] Shane: ![image](static/WA-elliot/00004240-PHOTO-2022-05-15-18-04-00.jpg)
+‎[15/05/2022, 18:04:00] Shane: 
+
+![image](static/WA-elliot/00004240-PHOTO-2022-05-15-18-04-00.jpg)
 
 [15/05/2022, 18:41:28] Elliot: What the fuck
 
@@ -29600,13 +30370,19 @@ All that shit at the club
 
 [15/05/2022, 19:14:48] Elliot: N
 
-‎[15/05/2022, 19:14:59] Elliot: ![image](static/WA-elliot/00004252-STICKER-2022-05-15-19-14-59.webp)
+‎[15/05/2022, 19:14:59] Elliot: 
 
-‎[15/05/2022, 21:35:08] Shane: ![image](static/WA-elliot/00004253-PHOTO-2022-05-15-21-35-07.jpg)
+![image](static/WA-elliot/00004252-STICKER-2022-05-15-19-14-59.webp)
+
+‎[15/05/2022, 21:35:08] Shane: 
+
+![image](static/WA-elliot/00004253-PHOTO-2022-05-15-21-35-07.jpg)
 
 [15/05/2022, 21:35:24] Elliot: Omg 🙄
 
-‎[15/05/2022, 21:35:59] Elliot: ![image](static/WA-elliot/00004255-PHOTO-2022-05-15-21-35-59.jpg)
+‎[15/05/2022, 21:35:59] Elliot: 
+
+![image](static/WA-elliot/00004255-PHOTO-2022-05-15-21-35-59.jpg)
 
 [15/05/2022, 21:36:27] Shane: Thank fuck for that
 
@@ -29616,17 +30392,23 @@ All that shit at the club
 
 [16/05/2022, 10:52:22] Shane: Nah it was just telling me he had joined didn’t even know I had his number still maybe
 
-‎[16/05/2022, 11:00:28] Elliot: ![image](static/WA-elliot/00004260-STICKER-2022-05-16-11-00-28.webp)
+‎[16/05/2022, 11:00:28] Elliot: 
+
+![image](static/WA-elliot/00004260-STICKER-2022-05-16-11-00-28.webp)
 
 [16/05/2022, 11:48:52] Shane: Morning you little slut what the Fuck are you doing today
 
-‎[16/05/2022, 11:50:35] Shane: ![image](static/WA-elliot/00004262-PHOTO-2022-05-16-11-50-34.jpg)
+‎[16/05/2022, 11:50:35] Shane: 
+
+![image](static/WA-elliot/00004262-PHOTO-2022-05-16-11-50-34.jpg)
 
 [16/05/2022, 11:53:45] Elliot: Ha ha ha do it
 
 [16/05/2022, 11:53:58] Elliot: Stock ordering babes
 
-‎[16/05/2022, 11:54:05] Elliot: ![image](static/WA-elliot/00004265-STICKER-2022-05-16-11-54-05.webp)
+‎[16/05/2022, 11:54:05] Elliot: 
+
+![image](static/WA-elliot/00004265-STICKER-2022-05-16-11-54-05.webp)
 
 [16/05/2022, 13:25:23] Shane: Thought that was Chrissy’s job
 
@@ -29682,7 +30464,9 @@ That, plus we are looking at changing the till system
 
 [16/05/2022, 16:36:01] Elliot: Yep, It is like this with everything we have come across
 
-‎[16/05/2022, 16:39:16] Shane: ![image](static/WA-elliot/00004290-PHOTO-2022-05-16-16-39-15.jpg)
+‎[16/05/2022, 16:39:16] Shane: 
+
+![image](static/WA-elliot/00004290-PHOTO-2022-05-16-16-39-15.jpg)
 
 [16/05/2022, 17:11:43] Elliot: 👏🏻👏🏻👏🏻
 
@@ -29694,7 +30478,9 @@ That, plus we are looking at changing the till system
 
 [17/05/2022, 22:55:17] Shane: NOW
 
-‎[17/05/2022, 22:55:49] Elliot: ![image](static/WA-elliot/00004296-PHOTO-2022-05-17-22-55-49.jpg)
+‎[17/05/2022, 22:55:49] Elliot: 
+
+![image](static/WA-elliot/00004296-PHOTO-2022-05-17-22-55-49.jpg)
 
 [17/05/2022, 22:56:05] Shane: Boss?
 
@@ -29822,7 +30608,9 @@ Cunt
 
 Why is this costing him this much ??
 
-‎[18/05/2022, 12:04:29] Elliot: ![image](static/WA-elliot/00004362-PHOTO-2022-05-18-12-04-29.jpg)
+‎[18/05/2022, 12:04:29] Elliot: 
+
+![image](static/WA-elliot/00004362-PHOTO-2022-05-18-12-04-29.jpg)
 
 [18/05/2022, 12:07:08] Shane: It must be attached to a hosting package with that company. Is that what the main website is on .co.uk ?
 
@@ -29874,7 +30662,9 @@ Why is this costing him this much ??
 
 [20/05/2022, 15:46:14] Shane: So what the fuck NOW
 
-‎[20/05/2022, 16:52:56] Elliot: ![image](static/WA-elliot/00004388-PHOTO-2022-05-20-16-52-56.jpg)
+‎[20/05/2022, 16:52:56] Elliot: 
+
+![image](static/WA-elliot/00004388-PHOTO-2022-05-20-16-52-56.jpg)
 
 [20/05/2022, 17:14:24] Shane: Ask him what that fucking font is now
 
@@ -29898,7 +30688,9 @@ Why is this costing him this much ??
 
 [21/05/2022, 13:01:19] Elliot: G
 
-‎[21/05/2022, 13:01:23] Elliot: ![image](static/WA-elliot/00004400-STICKER-2022-05-21-13-01-23.webp)
+‎[21/05/2022, 13:01:23] Elliot: 
+
+![image](static/WA-elliot/00004400-STICKER-2022-05-21-13-01-23.webp)
 
 [21/05/2022, 13:01:28] Elliot: He he
 
@@ -29906,7 +30698,9 @@ Why is this costing him this much ??
 
 [21/05/2022, 16:41:07] Shane: I’m designing an app lol
 
-‎[21/05/2022, 16:44:49] Elliot: ![image](static/WA-elliot/00004404-PHOTO-2022-05-21-16-44-49.jpg)
+‎[21/05/2022, 16:44:49] Elliot: 
+
+![image](static/WA-elliot/00004404-PHOTO-2022-05-21-16-44-49.jpg)
 
 [21/05/2022, 16:46:45] Shane: Little bitch
 
@@ -29940,7 +30734,9 @@ Why is this costing him this much ??
 
 [22/05/2022, 04:22:18] Elliot: Lol
 
-‎[22/05/2022, 04:36:34] Elliot: ![image](static/WA-elliot/00004421-PHOTO-2022-05-22-04-36-34.jpg)
+‎[22/05/2022, 04:36:34] Elliot: 
+
+![image](static/WA-elliot/00004421-PHOTO-2022-05-22-04-36-34.jpg)
 
 [22/05/2022, 04:36:57] Shane: Disgusting was it busy
 
@@ -29958,7 +30754,9 @@ Why is this costing him this much ??
 
 [22/05/2022, 04:46:26] Elliot: Ha ha
 
-‎[22/05/2022, 04:46:39] Elliot: ![image](static/WA-elliot/00004430-PHOTO-2022-05-22-04-46-39.jpg)
+‎[22/05/2022, 04:46:39] Elliot: 
+
+![image](static/WA-elliot/00004430-PHOTO-2022-05-22-04-46-39.jpg)
 
 [22/05/2022, 04:46:49] Shane: Tell him your friend is in bed dying it’s for him
 
@@ -30012,7 +30810,9 @@ Why is this costing him this much ??
 
 [25/05/2022, 07:24:50] Elliot: N
 
-‎[25/05/2022, 07:24:55] Elliot: ![image](static/WA-elliot/00004457-STICKER-2022-05-25-07-24-55.webp)
+‎[25/05/2022, 07:24:55] Elliot: 
+
+![image](static/WA-elliot/00004457-STICKER-2022-05-25-07-24-55.webp)
 
 [25/05/2022, 19:14:07] Shane: Some idiot I know with a fucked up partner like that woman from  the hand that rocks the cradle. It’s hilarious. Gets upset over everyone and everything.
 
@@ -30072,11 +30872,15 @@ That’s it your on my hate list  for looking at my bf and you blinked while loo
 
 [26/05/2022, 11:25:22] Elliot: He he
 
-‎[26/05/2022, 15:55:42] Elliot: ![image](static/WA-elliot/00004485-PHOTO-2022-05-26-15-55-42.jpg)
+‎[26/05/2022, 15:55:42] Elliot: 
+
+![image](static/WA-elliot/00004485-PHOTO-2022-05-26-15-55-42.jpg)
 
 [26/05/2022, 15:55:56] Shane: Camp
 
-‎[26/05/2022, 16:05:17] Elliot: ![image](static/WA-elliot/00004487-PHOTO-2022-05-26-16-05-17.jpg)
+‎[26/05/2022, 16:05:17] Elliot: 
+
+![image](static/WA-elliot/00004487-PHOTO-2022-05-26-16-05-17.jpg)
 
 [26/05/2022, 16:27:22] Shane: Circle
 
@@ -30114,7 +30918,9 @@ That’s it your on my hate list  for looking at my bf and you blinked while loo
 
 [27/05/2022, 00:10:14] Shane: You little bitch
 
-‎[27/05/2022, 00:13:28] Shane: ![image](static/WA-elliot/00004506-PHOTO-2022-05-27-00-13-28.jpg)
+‎[27/05/2022, 00:13:28] Shane: 
+
+![image](static/WA-elliot/00004506-PHOTO-2022-05-27-00-13-28.jpg)
 
 [27/05/2022, 00:13:38] Shane: Fucking phone
 
@@ -30128,9 +30934,13 @@ That’s it your on my hate list  for looking at my bf and you blinked while loo
 
 [27/05/2022, 08:20:36] Elliot: have to start calling you Victor Meldrew
 
-‎[27/05/2022, 08:20:41] Elliot: ![image](static/WA-elliot/00004513-STICKER-2022-05-27-08-20-41.webp)
+‎[27/05/2022, 08:20:41] Elliot: 
 
-‎[27/05/2022, 09:42:22] Elliot: ![image](static/WA-elliot/00004514-STICKER-2022-05-27-09-42-22.webp)
+![image](static/WA-elliot/00004513-STICKER-2022-05-27-08-20-41.webp)
+
+‎[27/05/2022, 09:42:22] Elliot: 
+
+![image](static/WA-elliot/00004514-STICKER-2022-05-27-09-42-22.webp)
 
 [27/05/2022, 12:01:03] Elliot: https:///youtu.be/JdLZ9Nl-PDk
 
@@ -30234,7 +31044,9 @@ Wraith
 
 [29/05/2022, 08:44:13] Elliot: 🥸
 
-‎[29/05/2022, 08:44:18] Elliot: ![image](static/WA-elliot/00004564-STICKER-2022-05-29-08-44-18.webp)
+‎[29/05/2022, 08:44:18] Elliot: 
+
+![image](static/WA-elliot/00004564-STICKER-2022-05-29-08-44-18.webp)
 
 [29/05/2022, 08:46:45] Elliot: You going to take me out for Sunday lunch ?
 
@@ -30254,7 +31066,9 @@ Wraith
 
 [29/05/2022, 08:48:48] Shane: Yeah lol
 
-‎[29/05/2022, 08:48:56] Elliot: ![image](static/WA-elliot/00004574-STICKER-2022-05-29-08-48-56.webp)
+‎[29/05/2022, 08:48:56] Elliot: 
+
+![image](static/WA-elliot/00004574-STICKER-2022-05-29-08-48-56.webp)
 
 [29/05/2022, 08:49:12] Elliot: Ok I’ll respect that
 
@@ -30322,11 +31136,15 @@ Wraith
 
 [29/05/2022, 08:53:24] Shane: Disgusting
 
-‎[29/05/2022, 08:53:41] Elliot: ![image](static/WA-elliot/00004610-STICKER-2022-05-29-08-53-41.webp)
+‎[29/05/2022, 08:53:41] Elliot: 
+
+![image](static/WA-elliot/00004610-STICKER-2022-05-29-08-53-41.webp)
 
 [29/05/2022, 08:53:51] Shane: Slag
 
-‎[29/05/2022, 08:53:55] Elliot: ![image](static/WA-elliot/00004612-STICKER-2022-05-29-08-53-55.webp)
+‎[29/05/2022, 08:53:55] Elliot: 
+
+![image](static/WA-elliot/00004612-STICKER-2022-05-29-08-53-55.webp)
 
 [29/05/2022, 08:54:17] Shane: Lol k eyes
 
@@ -30364,7 +31182,9 @@ Wraith
 
 [29/05/2022, 08:58:21] Shane: Slaaaagffg
 
-‎[29/05/2022, 08:58:29] Elliot: ![image](static/WA-elliot/00004631-STICKER-2022-05-29-08-58-29.webp)
+‎[29/05/2022, 08:58:29] Elliot: 
+
+![image](static/WA-elliot/00004631-STICKER-2022-05-29-08-58-29.webp)
 
 [29/05/2022, 08:59:20] Elliot: Can you come round and make me a coffee so I don’t have to get out of bed please
 
@@ -30374,15 +31194,21 @@ Wraith
 
 [29/05/2022, 08:59:51] Elliot: if finished the one little legs made
 
-‎[29/05/2022, 09:00:14] Elliot: ![image](static/WA-elliot/00004636-STICKER-2022-05-29-09-00-14.webp)
+‎[29/05/2022, 09:00:14] Elliot: 
+
+![image](static/WA-elliot/00004636-STICKER-2022-05-29-09-00-14.webp)
 
 [29/05/2022, 09:12:10] Shane: No
 
 [29/05/2022, 09:12:39] Elliot: You little bitch
 
-‎[29/05/2022, 09:13:03] Elliot: ![image](static/WA-elliot/00004639-PHOTO-2022-05-29-09-13-03.jpg)
+‎[29/05/2022, 09:13:03] Elliot: 
 
-‎[29/05/2022, 09:13:23] Shane: ![image](static/WA-elliot/00004640-PHOTO-2022-05-29-09-13-23.jpg)
+![image](static/WA-elliot/00004639-PHOTO-2022-05-29-09-13-03.jpg)
+
+‎[29/05/2022, 09:13:23] Shane: 
+
+![image](static/WA-elliot/00004640-PHOTO-2022-05-29-09-13-23.jpg)
 
 [29/05/2022, 09:13:37] Shane: Happy Jubliee
 
@@ -30392,7 +31218,9 @@ Wraith
 
 [29/05/2022, 09:15:51] Elliot: Yes
 
-‎[29/05/2022, 09:15:59] Elliot: ![image](static/WA-elliot/00004645-PHOTO-2022-05-29-09-15-59.jpg)
+‎[29/05/2022, 09:15:59] Elliot: 
+
+![image](static/WA-elliot/00004645-PHOTO-2022-05-29-09-15-59.jpg)
 
 [29/05/2022, 09:15:59] Shane: Lol
 
@@ -30580,7 +31408,9 @@ Show me the pic NOW
 
 [29/05/2022, 11:36:59] Elliot: Not like you to not speak your mind ffs
 
-‎[29/05/2022, 11:37:15] Elliot: ![image](static/WA-elliot/00004738-PHOTO-2022-05-29-11-37-15.jpg)
+‎[29/05/2022, 11:37:15] Elliot: 
+
+![image](static/WA-elliot/00004738-PHOTO-2022-05-29-11-37-15.jpg)
 
 [29/05/2022, 11:37:52] Shane: I thought how do I approach that. Can you image if I came and said I’ve not reported you for Benifit fraud and someone had and youd not told me hahaha
 
@@ -30692,7 +31522,9 @@ Show me the pic NOW
 
 [29/05/2022, 12:17:47] Shane: Baggy bollocks syndrome
 
-‎[29/05/2022, 12:18:03] Elliot: ![image](static/WA-elliot/00004794-PHOTO-2022-05-29-12-18-03.jpg)
+‎[29/05/2022, 12:18:03] Elliot: 
+
+![image](static/WA-elliot/00004794-PHOTO-2022-05-29-12-18-03.jpg)
 
 [29/05/2022, 12:18:26] Shane: Pull them fucking strips up
 
@@ -30754,13 +31586,17 @@ Show me the pic NOW
 
 [29/05/2022, 16:37:39] Shane: NOW
 
-‎[29/05/2022, 16:41:21] Elliot: ![image](static/WA-elliot/00004825-PHOTO-2022-05-29-16-41-21.jpg)
+‎[29/05/2022, 16:41:21] Elliot: 
+
+![image](static/WA-elliot/00004825-PHOTO-2022-05-29-16-41-21.jpg)
 
 [29/05/2022, 16:42:06] Shane: I have no appetite for stuff like that at the moment
 
 [29/05/2022, 16:42:19] Shane: Still can’t taste anything lol
 
-‎[29/05/2022, 16:42:41] Elliot: ![image](static/WA-elliot/00004828-PHOTO-2022-05-29-16-42-41.jpg)
+‎[29/05/2022, 16:42:41] Elliot: 
+
+![image](static/WA-elliot/00004828-PHOTO-2022-05-29-16-42-41.jpg)
 
 [29/05/2022, 16:43:01] Shane: Now maybe that lol
 
@@ -30786,7 +31622,9 @@ where the fuck do I fit in
 
 [29/05/2022, 18:29:59] Elliot: Ha ha yeah suck it
 
-‎[29/05/2022, 18:30:09] Elliot: ![image](static/WA-elliot/00004838-PHOTO-2022-05-29-18-30-09.jpg)
+‎[29/05/2022, 18:30:09] Elliot: 
+
+![image](static/WA-elliot/00004838-PHOTO-2022-05-29-18-30-09.jpg)
 
 [29/05/2022, 18:30:19] Shane: Won’t fit in my mouth
 
@@ -30806,11 +31644,15 @@ where the fuck do I fit in
 
 [29/05/2022, 18:31:22] Shane: Nope can’t won’t
 
-‎[29/05/2022, 18:31:28] Elliot: ![image](static/WA-elliot/00004848-STICKER-2022-05-29-18-31-28.webp)
+‎[29/05/2022, 18:31:28] Elliot: 
+
+![image](static/WA-elliot/00004848-STICKER-2022-05-29-18-31-28.webp)
 
 [29/05/2022, 18:31:33] Shane: Dunno
 
-‎[29/05/2022, 18:31:35] Elliot: ![image](static/WA-elliot/00004850-STICKER-2022-05-29-18-31-35.webp)
+‎[29/05/2022, 18:31:35] Elliot: 
+
+![image](static/WA-elliot/00004850-STICKER-2022-05-29-18-31-35.webp)
 
 [29/05/2022, 18:31:41] Shane: No I think he top lol
 
@@ -30870,7 +31712,9 @@ where the fuck do I fit in
 
 [29/05/2022, 18:37:23] Shane: Is bumming Chrissy
 
-‎[29/05/2022, 19:00:40] Elliot: ![image](static/WA-elliot/00004881-PHOTO-2022-05-29-19-00-40.jpg)
+‎[29/05/2022, 19:00:40] Elliot: 
+
+![image](static/WA-elliot/00004881-PHOTO-2022-05-29-19-00-40.jpg)
 
 [30/05/2022, 01:47:47] Shane: That’s Fucking. Disgusting lol
 
@@ -30890,9 +31734,13 @@ where the fuck do I fit in
 
 [30/05/2022, 06:59:44] Shane: Ewwwww
 
-‎[30/05/2022, 06:59:44] Elliot: ![image](static/WA-elliot/00004891-STICKER-2022-05-30-06-59-44.webp)
+‎[30/05/2022, 06:59:44] Elliot: 
 
-‎[30/05/2022, 06:59:58] Elliot: ![image](static/WA-elliot/00004892-STICKER-2022-05-30-06-59-58.webp)
+![image](static/WA-elliot/00004891-STICKER-2022-05-30-06-59-44.webp)
+
+‎[30/05/2022, 06:59:58] Elliot: 
+
+![image](static/WA-elliot/00004892-STICKER-2022-05-30-06-59-58.webp)
 
 [30/05/2022, 07:53:20] Elliot: Omfg
 
@@ -30916,7 +31764,9 @@ Why is my phone disabled? I dunno because it wants to claim benifits……
 
 [30/05/2022, 07:56:44] Elliot: Just fucking like it NOW
 
-‎[30/05/2022, 07:56:49] Elliot: ![image](static/WA-elliot/00004902-PHOTO-2022-05-30-07-56-49.jpg)
+‎[30/05/2022, 07:56:49] Elliot: 
+
+![image](static/WA-elliot/00004902-PHOTO-2022-05-30-07-56-49.jpg)
 
 [30/05/2022, 07:57:13] Shane: U looking disabled lol
 
@@ -30930,7 +31780,9 @@ Why is my phone disabled? I dunno because it wants to claim benifits……
 
 [30/05/2022, 07:57:38] Shane: Hah
 
-‎[30/05/2022, 07:57:43] Elliot: ![image](static/WA-elliot/00004909-PHOTO-2022-05-30-07-57-43.jpg)
+‎[30/05/2022, 07:57:43] Elliot: 
+
+![image](static/WA-elliot/00004909-PHOTO-2022-05-30-07-57-43.jpg)
 
 [30/05/2022, 07:57:54] Shane: Obsessed lol
 
@@ -30964,7 +31816,9 @@ Why is my phone disabled? I dunno because it wants to claim benifits……
 
 [30/05/2022, 08:02:58] Shane: No where is doing well now don’t think
 
-‎[30/05/2022, 08:03:06] Shane: ![image](static/WA-elliot/00004926-PHOTO-2022-05-30-08-03-06.jpg)
+‎[30/05/2022, 08:03:06] Shane: 
+
+![image](static/WA-elliot/00004926-PHOTO-2022-05-30-08-03-06.jpg)
 
 [30/05/2022, 08:03:26] Elliot: Yeah just seen this…
 
@@ -31354,7 +32208,9 @@ Now I’ve started
 
 [31/05/2022, 15:48:35] Elliot: Ha ha ha
 
-‎[31/05/2022, 15:48:38] Elliot: ![image](static/WA-elliot/00005121-PHOTO-2022-05-31-15-48-38.jpg)
+‎[31/05/2022, 15:48:38] Elliot: 
+
+![image](static/WA-elliot/00005121-PHOTO-2022-05-31-15-48-38.jpg)
 
 [31/05/2022, 15:48:41] Elliot: Errrr
 
@@ -31370,7 +32226,9 @@ Now I’ve started
 
 [31/05/2022, 15:49:08] Shane: Hahaha
 
-‎[31/05/2022, 15:51:03] Elliot: ![image](static/WA-elliot/00005129-PHOTO-2022-05-31-15-51-03.jpg)
+‎[31/05/2022, 15:51:03] Elliot: 
+
+![image](static/WA-elliot/00005129-PHOTO-2022-05-31-15-51-03.jpg)
 
 [31/05/2022, 15:51:16] Elliot: No monkey pox for you
 
@@ -31400,7 +32258,9 @@ Now I’ve started
 
 [31/05/2022, 16:28:13] Elliot: Nice…. Smooth quiet
 
-‎[31/05/2022, 16:28:49] Elliot: ![image](static/WA-elliot/00005147-PHOTO-2022-05-31-16-28-49.jpg)
+‎[31/05/2022, 16:28:49] Elliot: 
+
+![image](static/WA-elliot/00005147-PHOTO-2022-05-31-16-28-49.jpg)
 
 [31/05/2022, 16:28:54] Elliot: Wi-Fi to
 
@@ -31414,7 +32274,9 @@ Now I’ve started
 
 [31/05/2022, 16:55:39] Elliot: Ha ha he tiered
 
-‎[31/05/2022, 18:41:12] Shane: ![image](static/WA-elliot/00005154-PHOTO-2022-05-31-18-41-12.jpg)
+‎[31/05/2022, 18:41:12] Shane: 
+
+![image](static/WA-elliot/00005154-PHOTO-2022-05-31-18-41-12.jpg)
 
 [31/05/2022, 18:41:29] Shane: No staff more like
 
@@ -31436,7 +32298,9 @@ Now I’ve started
 
 [31/05/2022, 19:17:06] Elliot: 🤔🤔
 
-‎[31/05/2022, 19:17:13] Elliot: ![image](static/WA-elliot/00005165-PHOTO-2022-05-31-19-17-13.jpg)
+‎[31/05/2022, 19:17:13] Elliot: 
+
+![image](static/WA-elliot/00005165-PHOTO-2022-05-31-19-17-13.jpg)
 
 [31/05/2022, 19:17:18] Elliot: 🙄
 
@@ -31468,9 +32332,13 @@ Now I’ve started
 
 [31/05/2022, 20:57:38] Shane: I’m a diabetic dilf
 
-‎[31/05/2022, 21:03:14] Elliot: ![image](static/WA-elliot/00005181-STICKER-2022-05-31-21-03-14.webp)
+‎[31/05/2022, 21:03:14] Elliot: 
 
-‎[31/05/2022, 21:03:30] Shane: ![image](static/WA-elliot/00005182-PHOTO-2022-05-31-21-03-30.jpg)
+![image](static/WA-elliot/00005181-STICKER-2022-05-31-21-03-14.webp)
+
+‎[31/05/2022, 21:03:30] Shane: 
+
+![image](static/WA-elliot/00005182-PHOTO-2022-05-31-21-03-30.jpg)
 
 [31/05/2022, 21:03:34] Shane: Hiya
 
@@ -31484,23 +32352,35 @@ Now I’ve started
 
 [31/05/2022, 21:04:58] Shane: Just seen looking like a heart attack shot
 
-‎[31/05/2022, 21:05:08] Elliot: ![image](static/WA-elliot/00005189-STICKER-2022-05-31-21-05-08.webp)
+‎[31/05/2022, 21:05:08] Elliot: 
+
+![image](static/WA-elliot/00005189-STICKER-2022-05-31-21-05-08.webp)
 
 [31/05/2022, 21:05:37] Shane: https:///fb.watch/dmbFLOn73t/
 
 [31/05/2022, 21:08:00] Elliot: Omfg watch it ha ha ha ha
 
-‎[31/05/2022, 21:08:06] Elliot: ![image](static/WA-elliot/00005192-PHOTO-2022-05-31-21-08-06.jpg)
+‎[31/05/2022, 21:08:06] Elliot: 
+
+![image](static/WA-elliot/00005192-PHOTO-2022-05-31-21-08-06.jpg)
 
 [31/05/2022, 21:08:07] Shane: No
 
-‎[31/05/2022, 21:08:09] Elliot: ![image](static/WA-elliot/00005194-PHOTO-2022-05-31-21-08-09.jpg)
+‎[31/05/2022, 21:08:09] Elliot: 
 
-‎[31/05/2022, 21:08:12] Elliot: ![image](static/WA-elliot/00005195-PHOTO-2022-05-31-21-08-12.jpg)
+![image](static/WA-elliot/00005194-PHOTO-2022-05-31-21-08-09.jpg)
 
-‎[31/05/2022, 21:08:16] Elliot: ![image](static/WA-elliot/00005196-PHOTO-2022-05-31-21-08-16.jpg)
+‎[31/05/2022, 21:08:12] Elliot: 
 
-‎[31/05/2022, 21:08:20] Elliot: ![image](static/WA-elliot/00005197-PHOTO-2022-05-31-21-08-20.jpg)
+![image](static/WA-elliot/00005195-PHOTO-2022-05-31-21-08-12.jpg)
+
+‎[31/05/2022, 21:08:16] Elliot: 
+
+![image](static/WA-elliot/00005196-PHOTO-2022-05-31-21-08-16.jpg)
+
+‎[31/05/2022, 21:08:20] Elliot: 
+
+![image](static/WA-elliot/00005197-PHOTO-2022-05-31-21-08-20.jpg)
 
 [31/05/2022, 21:10:29] Elliot: Some other cunt wrote it and most of it is made up!! Ha ha
 
@@ -31566,7 +32446,9 @@ Now I’ve started
 
 [31/05/2022, 21:18:45] Elliot: Lol it is
 
-‎[01/06/2022, 08:27:45] Elliot: ![image](static/WA-elliot/00005230-PHOTO-2022-06-01-08-27-45.jpg)
+‎[01/06/2022, 08:27:45] Elliot: 
+
+![image](static/WA-elliot/00005230-PHOTO-2022-06-01-08-27-45.jpg)
 
 [01/06/2022, 08:27:48] Elliot: NOW
 
@@ -31578,7 +32460,9 @@ Now I’ve started
 
 [01/06/2022, 08:28:58] Elliot: Snap
 
-‎[01/06/2022, 08:29:02] Elliot: ![image](static/WA-elliot/00005236-PHOTO-2022-06-01-08-29-02.jpg)
+‎[01/06/2022, 08:29:02] Elliot: 
+
+![image](static/WA-elliot/00005236-PHOTO-2022-06-01-08-29-02.jpg)
 
 ‎[01/06/2022, 08:29:15] Elliot: ‎video omitted
 
@@ -31590,15 +32474,21 @@ Now I’ve started
 
 [01/06/2022, 08:30:09] Shane: Eewwwww
 
-‎[01/06/2022, 08:30:11] Elliot: ![image](static/WA-elliot/00005242-PHOTO-2022-06-01-08-30-11.jpg)
+‎[01/06/2022, 08:30:11] Elliot: 
 
-‎[01/06/2022, 08:30:21] Elliot: ![image](static/WA-elliot/00005243-PHOTO-2022-06-01-08-30-21.jpg)
+![image](static/WA-elliot/00005242-PHOTO-2022-06-01-08-30-11.jpg)
+
+‎[01/06/2022, 08:30:21] Elliot: 
+
+![image](static/WA-elliot/00005243-PHOTO-2022-06-01-08-30-21.jpg)
 
 [01/06/2022, 08:30:24] Shane: Sorry babes
 
 [01/06/2022, 08:30:27] Shane: Haha
 
-‎[01/06/2022, 08:30:38] Elliot: ![image](static/WA-elliot/00005246-PHOTO-2022-06-01-08-30-38.jpg)
+‎[01/06/2022, 08:30:38] Elliot: 
+
+![image](static/WA-elliot/00005246-PHOTO-2022-06-01-08-30-38.jpg)
 
 [01/06/2022, 08:30:41] Shane: I’ve not watched it still lol
 
@@ -31620,7 +32510,9 @@ Now I’ve started
 
 [01/06/2022, 14:40:10] Elliot: Top middle and Live room
 
-‎[01/06/2022, 14:40:21] Elliot: ![image](static/WA-elliot/00005257-GIF-2022-06-01-14-40-21.mp4)
+‎[01/06/2022, 14:40:21] Elliot: 
+
+![image](static/WA-elliot/00005257-GIF-2022-06-01-14-40-21.mp4)
 
 [01/06/2022, 14:40:26] Shane: Camp
 
@@ -31656,15 +32548,21 @@ Now I’ve started
 
 [01/06/2022, 18:11:13] Elliot: Thirst tomorrow, Private party Friday and Monster Queen Saturday
 
-‎[01/06/2022, 18:11:19] Elliot: ![image](static/WA-elliot/00005275-PHOTO-2022-06-01-18-11-19.jpg)
+‎[01/06/2022, 18:11:19] Elliot: 
+
+![image](static/WA-elliot/00005275-PHOTO-2022-06-01-18-11-19.jpg)
 
 [01/06/2022, 18:11:32] Shane: U working
 
-‎[01/06/2022, 18:11:36] Elliot: ![image](static/WA-elliot/00005277-GIF-2022-06-01-18-11-36.mp4)
+‎[01/06/2022, 18:11:36] Elliot: 
+
+![image](static/WA-elliot/00005277-GIF-2022-06-01-18-11-36.mp4)
 
 [01/06/2022, 18:11:41] Elliot: Saturday
 
-‎[01/06/2022, 22:00:51] Shane: ![image](static/WA-elliot/00005279-PHOTO-2022-06-01-22-00-51.jpg)
+‎[01/06/2022, 22:00:51] Shane: 
+
+![image](static/WA-elliot/00005279-PHOTO-2022-06-01-22-00-51.jpg)
 
 [01/06/2022, 22:02:24] Elliot: Yeah I don’t want to remember it
 
@@ -31742,15 +32640,23 @@ Now I’ve started
 
 [03/06/2022, 13:00:13] Elliot: NOW
 
-‎[03/06/2022, 13:00:21] Elliot: ![image](static/WA-elliot/00005323-STICKER-2022-06-03-13-00-21.webp)
+‎[03/06/2022, 13:00:21] Elliot: 
 
-‎[03/06/2022, 13:00:27] Elliot: ![image](static/WA-elliot/00005324-STICKER-2022-06-03-13-00-27.webp)
+![image](static/WA-elliot/00005323-STICKER-2022-06-03-13-00-21.webp)
+
+‎[03/06/2022, 13:00:27] Elliot: 
+
+![image](static/WA-elliot/00005324-STICKER-2022-06-03-13-00-27.webp)
 
 [03/06/2022, 14:30:41] Shane: NO
 
-‎[03/06/2022, 14:31:06] Shane: ![image](static/WA-elliot/00005326-PHOTO-2022-06-03-14-31-06.jpg)
+‎[03/06/2022, 14:31:06] Shane: 
 
-‎[03/06/2022, 14:31:13] Elliot: ![image](static/WA-elliot/00005327-PHOTO-2022-06-03-14-31-13.jpg)
+![image](static/WA-elliot/00005326-PHOTO-2022-06-03-14-31-06.jpg)
+
+‎[03/06/2022, 14:31:13] Elliot: 
+
+![image](static/WA-elliot/00005327-PHOTO-2022-06-03-14-31-13.jpg)
 
 [03/06/2022, 14:31:23] Shane: Yep
 
@@ -31762,9 +32668,13 @@ Now I’ve started
 
 [03/06/2022, 16:36:44] Elliot: Yeah we made friends ages ago
 
-‎[03/06/2022, 16:36:51] Elliot: ![image](static/WA-elliot/00005333-PHOTO-2022-06-03-16-36-51.jpg)
+‎[03/06/2022, 16:36:51] Elliot: 
 
-‎[03/06/2022, 16:36:58] Elliot: ![image](static/WA-elliot/00005334-PHOTO-2022-06-03-16-36-58.jpg)
+![image](static/WA-elliot/00005333-PHOTO-2022-06-03-16-36-51.jpg)
+
+‎[03/06/2022, 16:36:58] Elliot: 
+
+![image](static/WA-elliot/00005334-PHOTO-2022-06-03-16-36-58.jpg)
 
 [03/06/2022, 16:37:12] Elliot: She got so drunk Edna told her off ha ha
 
@@ -31784,7 +32694,9 @@ Now I’ve started
 
 [03/06/2022, 16:40:06] Elliot: They just got pissed up and wind him up lol
 
-‎[03/06/2022, 16:40:52] Elliot: ![image](static/WA-elliot/00005344-PHOTO-2022-06-03-16-40-52.jpg)
+‎[03/06/2022, 16:40:52] Elliot: 
+
+![image](static/WA-elliot/00005344-PHOTO-2022-06-03-16-40-52.jpg)
 
 [03/06/2022, 16:41:03] Elliot: He’s in charge at Firs
 
@@ -31866,7 +32778,9 @@ Now I’ve started
 
 [04/06/2022, 03:18:18] Shane: When
 
-‎[04/06/2022, 03:18:40] Elliot: ![image](static/WA-elliot/00005385-PHOTO-2022-06-04-03-18-40.jpg)
+‎[04/06/2022, 03:18:40] Elliot: 
+
+![image](static/WA-elliot/00005385-PHOTO-2022-06-04-03-18-40.jpg)
 
 [04/06/2022, 03:19:06] Shane: Cloud ☁️  not cold
 
@@ -31922,15 +32836,21 @@ Now I’ve started
 
 ‎[04/06/2022, 16:24:44] Elliot: ‎video omitted
 
-‎[04/06/2022, 16:32:03] Elliot: ![image](static/WA-elliot/00005413-PHOTO-2022-06-04-16-32-03.jpg)
+‎[04/06/2022, 16:32:03] Elliot: 
+
+![image](static/WA-elliot/00005413-PHOTO-2022-06-04-16-32-03.jpg)
 
 [04/06/2022, 16:54:28] Shane: Getting bummed lol
 
 [04/06/2022, 16:54:55] Elliot: Eeeewwwww
 
-‎[04/06/2022, 16:54:57] Elliot: ![image](static/WA-elliot/00005416-STICKER-2022-06-04-16-54-57.webp)
+‎[04/06/2022, 16:54:57] Elliot: 
 
-‎[04/06/2022, 17:52:31] Shane: ![image](static/WA-elliot/00005417-PHOTO-2022-06-04-17-52-31.jpg)
+![image](static/WA-elliot/00005416-STICKER-2022-06-04-16-54-57.webp)
+
+‎[04/06/2022, 17:52:31] Shane: 
+
+![image](static/WA-elliot/00005417-PHOTO-2022-06-04-17-52-31.jpg)
 
 [04/06/2022, 17:52:42] Shane: Big cock
 
@@ -31954,7 +32874,9 @@ NOW
 
 [04/06/2022, 17:54:53] Elliot: Omg 😆
 
-‎[04/06/2022, 17:54:58] Elliot: ![image](static/WA-elliot/00005427-STICKER-2022-06-04-17-54-58.webp)
+‎[04/06/2022, 17:54:58] Elliot: 
+
+![image](static/WA-elliot/00005427-STICKER-2022-06-04-17-54-58.webp)
 
 [04/06/2022, 17:55:38] Shane: You put him on that id thing I think then he put a status about it lol
 
@@ -31996,7 +32918,9 @@ NOW
 
 [04/06/2022, 17:58:51] Shane: NOW
 
-‎[04/06/2022, 17:58:57] Elliot: ![image](static/WA-elliot/00005448-PHOTO-2022-06-04-17-58-57.jpg)
+‎[04/06/2022, 17:58:57] Elliot: 
+
+![image](static/WA-elliot/00005448-PHOTO-2022-06-04-17-58-57.jpg)
 
 [04/06/2022, 17:59:09] Shane: Omg what the fuck for
 
@@ -32004,7 +32928,9 @@ NOW
 
 [04/06/2022, 17:59:36] Elliot: But pressed 2 when you get 2 per order 🙄🫣
 
-‎[04/06/2022, 18:01:04] Shane: ![image](static/WA-elliot/00005452-PHOTO-2022-06-04-18-01-04.jpg)
+‎[04/06/2022, 18:01:04] Shane: 
+
+![image](static/WA-elliot/00005452-PHOTO-2022-06-04-18-01-04.jpg)
 
 [04/06/2022, 18:01:23] Shane: Shane banks I think he called
 
@@ -32052,11 +32978,15 @@ NOW
 
 [05/06/2022, 01:20:02] Shane: Right NOW
 
-‎[05/06/2022, 01:23:36] Elliot: ![image](static/WA-elliot/00005476-PHOTO-2022-06-05-01-23-36.jpg)
+‎[05/06/2022, 01:23:36] Elliot: 
+
+![image](static/WA-elliot/00005476-PHOTO-2022-06-05-01-23-36.jpg)
 
 [05/06/2022, 01:23:54] Shane: Omg
 
-‎[05/06/2022, 01:24:03] Shane: ![image](static/WA-elliot/00005478-PHOTO-2022-06-05-01-24-03.jpg)
+‎[05/06/2022, 01:24:03] Shane: 
+
+![image](static/WA-elliot/00005478-PHOTO-2022-06-05-01-24-03.jpg)
 
 [05/06/2022, 01:24:57] Elliot: They gone home
 
@@ -32074,7 +33004,9 @@ NOW
 
 [05/06/2022, 17:23:10] Elliot: W
 
-‎[05/06/2022, 17:23:24] Elliot: ![image](static/WA-elliot/00005487-PHOTO-2022-06-05-17-23-24.jpg)
+‎[05/06/2022, 17:23:24] Elliot: 
+
+![image](static/WA-elliot/00005487-PHOTO-2022-06-05-17-23-24.jpg)
 
 [05/06/2022, 20:54:30] Shane: NO
 
@@ -32144,7 +33076,9 @@ NOW
 
 [06/06/2022, 16:06:39] Shane: Lol
 
-‎[06/06/2022, 16:06:51] Elliot: ![image](static/WA-elliot/00005522-PHOTO-2022-06-06-16-06-51.jpg)
+‎[06/06/2022, 16:06:51] Elliot: 
+
+![image](static/WA-elliot/00005522-PHOTO-2022-06-06-16-06-51.jpg)
 
 [06/06/2022, 16:06:53] Elliot: He he
 
@@ -32152,7 +33086,9 @@ NOW
 
 [06/06/2022, 17:41:57] Elliot: Ha ha ha
 
-‎[06/06/2022, 18:58:41] Elliot: ![image](static/WA-elliot/00005526-PHOTO-2022-06-06-18-58-41.jpg)
+‎[06/06/2022, 18:58:41] Elliot: 
+
+![image](static/WA-elliot/00005526-PHOTO-2022-06-06-18-58-41.jpg)
 
 [06/06/2022, 18:58:53] Shane: Looks shit
 
@@ -32188,11 +33124,17 @@ NOW
 
 [06/06/2022, 19:04:33] Elliot: Chipped white paint lol
 
-‎[06/06/2022, 19:05:24] Shane: ![image](static/WA-elliot/00005544-PHOTO-2022-06-06-19-05-23.jpg)
+‎[06/06/2022, 19:05:24] Shane: 
 
-‎[06/06/2022, 19:07:36] Elliot: ![image](static/WA-elliot/00005545-PHOTO-2022-06-06-19-07-36.jpg)
+![image](static/WA-elliot/00005544-PHOTO-2022-06-06-19-05-23.jpg)
 
-‎[06/06/2022, 19:07:48] Elliot: ![image](static/WA-elliot/00005546-PHOTO-2022-06-06-19-07-48.jpg)
+‎[06/06/2022, 19:07:36] Elliot: 
+
+![image](static/WA-elliot/00005545-PHOTO-2022-06-06-19-07-36.jpg)
+
+‎[06/06/2022, 19:07:48] Elliot: 
+
+![image](static/WA-elliot/00005546-PHOTO-2022-06-06-19-07-48.jpg)
 
 [06/06/2022, 19:08:09] Shane: Omg don’t talk about Ben like that
 
@@ -32212,19 +33154,27 @@ NOW
 
 ‎[06/06/2022, 19:38:56] Elliot: ‎video omitted
 
-‎[06/06/2022, 22:02:52] Elliot: ![image](static/WA-elliot/00005556-PHOTO-2022-06-06-22-02-52.jpg)
+‎[06/06/2022, 22:02:52] Elliot: 
 
-‎[06/06/2022, 22:03:16] Shane: ![image](static/WA-elliot/00005557-PHOTO-2022-06-06-22-03-16.jpg)
+![image](static/WA-elliot/00005556-PHOTO-2022-06-06-22-02-52.jpg)
+
+‎[06/06/2022, 22:03:16] Shane: 
+
+![image](static/WA-elliot/00005557-PHOTO-2022-06-06-22-03-16.jpg)
 
 [06/06/2022, 22:11:11] Elliot: Lol
 
 [07/06/2022, 12:54:57] Elliot: Coat 2
 
-‎[07/06/2022, 12:55:01] Elliot: ![image](static/WA-elliot/00005560-PHOTO-2022-06-07-12-55-01.jpg)
+‎[07/06/2022, 12:55:01] Elliot: 
+
+![image](static/WA-elliot/00005560-PHOTO-2022-06-07-12-55-01.jpg)
 
 [07/06/2022, 16:06:28] Shane: Will be black by the time roast comes
 
-‎[07/06/2022, 16:29:01] Elliot: ![image](static/WA-elliot/00005562-PHOTO-2022-06-07-16-29-01.jpg)
+‎[07/06/2022, 16:29:01] Elliot: 
+
+![image](static/WA-elliot/00005562-PHOTO-2022-06-07-16-29-01.jpg)
 
 [07/06/2022, 21:26:32] Shane: Yeah Elliot there like steps you ain’t painting Buckingham palace lol it looked ok at coat 2
 
@@ -32260,7 +33210,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [08/06/2022, 14:58:58] Shane: Tickets tickets.  tickets you wanna ticket
 
-‎[08/06/2022, 15:00:25] Shane: ![image](static/WA-elliot/00005578-PHOTO-2022-06-08-15-00-24.jpg)
+‎[08/06/2022, 15:00:25] Shane: 
+
+![image](static/WA-elliot/00005578-PHOTO-2022-06-08-15-00-24.jpg)
 
 [08/06/2022, 15:00:42] Elliot: Ha ha ha
 
@@ -32268,65 +33220,125 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [08/06/2022, 15:00:50] Elliot: NOW
 
-‎[08/06/2022, 17:50:55] Shane: ![image](static/WA-elliot/00005582-PHOTO-2022-06-08-17-50-55.jpg)
+‎[08/06/2022, 17:50:55] Shane: 
 
-‎[08/06/2022, 17:50:55] Shane: ![image](static/WA-elliot/00005583-PHOTO-2022-06-08-17-50-55.jpg)
+![image](static/WA-elliot/00005582-PHOTO-2022-06-08-17-50-55.jpg)
 
-‎[08/06/2022, 17:50:55] Shane: ![image](static/WA-elliot/00005584-PHOTO-2022-06-08-17-50-55.jpg)
+‎[08/06/2022, 17:50:55] Shane: 
 
-‎[08/06/2022, 17:50:56] Shane: ![image](static/WA-elliot/00005585-PHOTO-2022-06-08-17-50-56.jpg)
+![image](static/WA-elliot/00005583-PHOTO-2022-06-08-17-50-55.jpg)
 
-‎[08/06/2022, 17:50:56] Shane: ![image](static/WA-elliot/00005586-PHOTO-2022-06-08-17-50-56.jpg)
+‎[08/06/2022, 17:50:55] Shane: 
 
-‎[08/06/2022, 17:50:57] Shane: ![image](static/WA-elliot/00005587-PHOTO-2022-06-08-17-50-57.jpg)
+![image](static/WA-elliot/00005584-PHOTO-2022-06-08-17-50-55.jpg)
 
-‎[08/06/2022, 17:51:01] Shane: ![image](static/WA-elliot/00005588-PHOTO-2022-06-08-17-51-01.jpg)
+‎[08/06/2022, 17:50:56] Shane: 
 
-‎[08/06/2022, 17:51:01] Shane: ![image](static/WA-elliot/00005589-PHOTO-2022-06-08-17-51-01.jpg)
+![image](static/WA-elliot/00005585-PHOTO-2022-06-08-17-50-56.jpg)
 
-‎[08/06/2022, 17:51:02] Shane: ![image](static/WA-elliot/00005590-PHOTO-2022-06-08-17-51-02.jpg)
+‎[08/06/2022, 17:50:56] Shane: 
 
-‎[08/06/2022, 17:51:02] Shane: ![image](static/WA-elliot/00005591-PHOTO-2022-06-08-17-51-02.jpg)
+![image](static/WA-elliot/00005586-PHOTO-2022-06-08-17-50-56.jpg)
 
-‎[08/06/2022, 17:51:02] Shane: ![image](static/WA-elliot/00005592-PHOTO-2022-06-08-17-51-02.jpg)
+‎[08/06/2022, 17:50:57] Shane: 
 
-‎[08/06/2022, 17:51:03] Shane: ![image](static/WA-elliot/00005593-PHOTO-2022-06-08-17-51-03.jpg)
+![image](static/WA-elliot/00005587-PHOTO-2022-06-08-17-50-57.jpg)
 
-‎[08/06/2022, 17:51:03] Shane: ![image](static/WA-elliot/00005594-PHOTO-2022-06-08-17-51-03.jpg)
+‎[08/06/2022, 17:51:01] Shane: 
 
-‎[08/06/2022, 17:51:03] Shane: ![image](static/WA-elliot/00005595-PHOTO-2022-06-08-17-51-03.jpg)
+![image](static/WA-elliot/00005588-PHOTO-2022-06-08-17-51-01.jpg)
 
-‎[08/06/2022, 17:51:04] Shane: ![image](static/WA-elliot/00005596-PHOTO-2022-06-08-17-51-04.jpg)
+‎[08/06/2022, 17:51:01] Shane: 
 
-‎[08/06/2022, 17:51:04] Shane: ![image](static/WA-elliot/00005597-PHOTO-2022-06-08-17-51-04.jpg)
+![image](static/WA-elliot/00005589-PHOTO-2022-06-08-17-51-01.jpg)
 
-‎[08/06/2022, 17:51:05] Shane: ![image](static/WA-elliot/00005598-PHOTO-2022-06-08-17-51-05.jpg)
+‎[08/06/2022, 17:51:02] Shane: 
 
-‎[08/06/2022, 17:51:06] Shane: ![image](static/WA-elliot/00005599-PHOTO-2022-06-08-17-51-06.jpg)
+![image](static/WA-elliot/00005590-PHOTO-2022-06-08-17-51-02.jpg)
 
-‎[08/06/2022, 17:51:06] Shane: ![image](static/WA-elliot/00005600-PHOTO-2022-06-08-17-51-06.jpg)
+‎[08/06/2022, 17:51:02] Shane: 
 
-‎[08/06/2022, 17:51:07] Shane: ![image](static/WA-elliot/00005601-PHOTO-2022-06-08-17-51-07.jpg)
+![image](static/WA-elliot/00005591-PHOTO-2022-06-08-17-51-02.jpg)
 
-‎[08/06/2022, 17:51:08] Shane: ![image](static/WA-elliot/00005602-PHOTO-2022-06-08-17-51-08.jpg)
+‎[08/06/2022, 17:51:02] Shane: 
 
-‎[08/06/2022, 17:51:08] Shane: ![image](static/WA-elliot/00005603-PHOTO-2022-06-08-17-51-08.jpg)
+![image](static/WA-elliot/00005592-PHOTO-2022-06-08-17-51-02.jpg)
 
-‎[08/06/2022, 17:51:08] Shane: ![image](static/WA-elliot/00005604-PHOTO-2022-06-08-17-51-08.jpg)
+‎[08/06/2022, 17:51:03] Shane: 
 
-‎[08/06/2022, 17:51:08] Shane: ![image](static/WA-elliot/00005605-PHOTO-2022-06-08-17-51-08.jpg)
+![image](static/WA-elliot/00005593-PHOTO-2022-06-08-17-51-03.jpg)
 
-‎[08/06/2022, 17:51:08] Shane: ![image](static/WA-elliot/00005606-PHOTO-2022-06-08-17-51-08.jpg)
+‎[08/06/2022, 17:51:03] Shane: 
 
-‎[08/06/2022, 17:51:09] Shane: ![image](static/WA-elliot/00005607-PHOTO-2022-06-08-17-51-09.jpg)
+![image](static/WA-elliot/00005594-PHOTO-2022-06-08-17-51-03.jpg)
 
-‎[08/06/2022, 17:51:09] Shane: ![image](static/WA-elliot/00005608-PHOTO-2022-06-08-17-51-09.jpg)
+‎[08/06/2022, 17:51:03] Shane: 
 
-‎[08/06/2022, 17:51:09] Shane: ![image](static/WA-elliot/00005609-PHOTO-2022-06-08-17-51-09.jpg)
+![image](static/WA-elliot/00005595-PHOTO-2022-06-08-17-51-03.jpg)
 
-‎[08/06/2022, 17:51:09] Shane: ![image](static/WA-elliot/00005610-PHOTO-2022-06-08-17-51-09.jpg)
+‎[08/06/2022, 17:51:04] Shane: 
 
-‎[08/06/2022, 17:51:09] Shane: ![image](static/WA-elliot/00005611-PHOTO-2022-06-08-17-51-09.jpg)
+![image](static/WA-elliot/00005596-PHOTO-2022-06-08-17-51-04.jpg)
+
+‎[08/06/2022, 17:51:04] Shane: 
+
+![image](static/WA-elliot/00005597-PHOTO-2022-06-08-17-51-04.jpg)
+
+‎[08/06/2022, 17:51:05] Shane: 
+
+![image](static/WA-elliot/00005598-PHOTO-2022-06-08-17-51-05.jpg)
+
+‎[08/06/2022, 17:51:06] Shane: 
+
+![image](static/WA-elliot/00005599-PHOTO-2022-06-08-17-51-06.jpg)
+
+‎[08/06/2022, 17:51:06] Shane: 
+
+![image](static/WA-elliot/00005600-PHOTO-2022-06-08-17-51-06.jpg)
+
+‎[08/06/2022, 17:51:07] Shane: 
+
+![image](static/WA-elliot/00005601-PHOTO-2022-06-08-17-51-07.jpg)
+
+‎[08/06/2022, 17:51:08] Shane: 
+
+![image](static/WA-elliot/00005602-PHOTO-2022-06-08-17-51-08.jpg)
+
+‎[08/06/2022, 17:51:08] Shane: 
+
+![image](static/WA-elliot/00005603-PHOTO-2022-06-08-17-51-08.jpg)
+
+‎[08/06/2022, 17:51:08] Shane: 
+
+![image](static/WA-elliot/00005604-PHOTO-2022-06-08-17-51-08.jpg)
+
+‎[08/06/2022, 17:51:08] Shane: 
+
+![image](static/WA-elliot/00005605-PHOTO-2022-06-08-17-51-08.jpg)
+
+‎[08/06/2022, 17:51:08] Shane: 
+
+![image](static/WA-elliot/00005606-PHOTO-2022-06-08-17-51-08.jpg)
+
+‎[08/06/2022, 17:51:09] Shane: 
+
+![image](static/WA-elliot/00005607-PHOTO-2022-06-08-17-51-09.jpg)
+
+‎[08/06/2022, 17:51:09] Shane: 
+
+![image](static/WA-elliot/00005608-PHOTO-2022-06-08-17-51-09.jpg)
+
+‎[08/06/2022, 17:51:09] Shane: 
+
+![image](static/WA-elliot/00005609-PHOTO-2022-06-08-17-51-09.jpg)
+
+‎[08/06/2022, 17:51:09] Shane: 
+
+![image](static/WA-elliot/00005610-PHOTO-2022-06-08-17-51-09.jpg)
+
+‎[08/06/2022, 17:51:09] Shane: 
+
+![image](static/WA-elliot/00005611-PHOTO-2022-06-08-17-51-09.jpg)
 
 [08/06/2022, 17:51:37] Shane: there you go
 
@@ -32352,9 +33364,13 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [08/06/2022, 18:24:30] Elliot: Poop
 
-‎[08/06/2022, 18:24:48] Elliot: ![image](static/WA-elliot/00005624-PHOTO-2022-06-08-18-24-48.jpg)
+‎[08/06/2022, 18:24:48] Elliot: 
 
-‎[08/06/2022, 18:24:55] Elliot: ![image](static/WA-elliot/00005625-PHOTO-2022-06-08-18-24-55.jpg)
+![image](static/WA-elliot/00005624-PHOTO-2022-06-08-18-24-48.jpg)
+
+‎[08/06/2022, 18:24:55] Elliot: 
+
+![image](static/WA-elliot/00005625-PHOTO-2022-06-08-18-24-55.jpg)
 
 [08/06/2022, 19:04:19] Shane: no bar staff
 
@@ -32372,7 +33388,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [08/06/2022, 23:18:16] Shane: You got a party on called roast or summat
 
-‎[08/06/2022, 23:18:52] Shane: ![image](static/WA-elliot/00005634-PHOTO-2022-06-08-23-18-52.jpg)
+‎[08/06/2022, 23:18:52] Shane: 
+
+![image](static/WA-elliot/00005634-PHOTO-2022-06-08-23-18-52.jpg)
 
 [08/06/2022, 23:22:38] Elliot: Omg what the fuck is that nonce wearing ?!
 
@@ -32394,9 +33412,13 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [08/06/2022, 23:56:19] Shane: Tickets tickets tickets
 
-‎[08/06/2022, 23:56:21] Elliot: ![image](static/WA-elliot/00005645-PHOTO-2022-06-08-23-56-21.jpg)
+‎[08/06/2022, 23:56:21] Elliot: 
 
-‎[08/06/2022, 23:56:39] Elliot: ![image](static/WA-elliot/00005646-PHOTO-2022-06-08-23-56-39.jpg)
+![image](static/WA-elliot/00005645-PHOTO-2022-06-08-23-56-21.jpg)
+
+‎[08/06/2022, 23:56:39] Elliot: 
+
+![image](static/WA-elliot/00005646-PHOTO-2022-06-08-23-56-39.jpg)
 
 [08/06/2022, 23:56:52] Shane: Fucking pensioners club lol
 
@@ -32408,7 +33430,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [08/06/2022, 23:57:57] Shane: Yeah supposed
 
-‎[09/06/2022, 08:53:33] Elliot: ![image](static/WA-elliot/00005652-PHOTO-2022-06-09-08-53-33.jpg)
+‎[09/06/2022, 08:53:33] Elliot: 
+
+![image](static/WA-elliot/00005652-PHOTO-2022-06-09-08-53-33.jpg)
 
 [10/06/2022, 07:55:59] Shane: Omg disgusting
 
@@ -32512,7 +33536,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [10/06/2022, 09:53:03] Shane: Lol
 
-‎[10/06/2022, 09:53:08] Elliot: ![image](static/WA-elliot/00005704-PHOTO-2022-06-10-09-53-08.jpg)
+‎[10/06/2022, 09:53:08] Elliot: 
+
+![image](static/WA-elliot/00005704-PHOTO-2022-06-10-09-53-08.jpg)
 
 [10/06/2022, 09:53:22] Shane: Looks wank steps look nice tho hahaha
 
@@ -32578,15 +33604,21 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [10/06/2022, 15:57:58] Shane: You little bitch NOW
 
-‎[10/06/2022, 15:58:14] Elliot: ![image](static/WA-elliot/00005737-AUDIO-2022-06-10-15-58-14.opus)
+‎[10/06/2022, 15:58:14] Elliot: 
 
-‎[10/06/2022, 15:58:35] Elliot: ![image](static/WA-elliot/00005738-AUDIO-2022-06-10-15-58-35.opus)
+![image](static/WA-elliot/00005737-AUDIO-2022-06-10-15-58-14.opus)
+
+‎[10/06/2022, 15:58:35] Elliot: 
+
+![image](static/WA-elliot/00005738-AUDIO-2022-06-10-15-58-35.opus)
 
 [10/06/2022, 15:59:01] Shane: Disgusting
 
 [10/06/2022, 15:59:07] Shane: Filth
 
-‎[10/06/2022, 19:59:56] Elliot: ![image](static/WA-elliot/00005741-PHOTO-2022-06-10-19-59-56.jpg)
+‎[10/06/2022, 19:59:56] Elliot: 
+
+![image](static/WA-elliot/00005741-PHOTO-2022-06-10-19-59-56.jpg)
 
 [11/06/2022, 11:43:16] Shane: Omg if UC credit see me behind that bar il be strung up get me out NOW
 
@@ -32624,7 +33656,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [12/06/2022, 17:07:14] Shane: When you get that
 
-‎[12/06/2022, 17:07:18] Elliot: ![image](static/WA-elliot/00005760-PHOTO-2022-06-12-17-07-18.jpg)
+‎[12/06/2022, 17:07:18] Elliot: 
+
+![image](static/WA-elliot/00005760-PHOTO-2022-06-12-17-07-18.jpg)
 
 [12/06/2022, 17:07:42] Elliot: Yesterday it knocked me out… today I took the test
 
@@ -32654,7 +33688,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [13/06/2022, 08:46:54] Elliot: NOW
 
-‎[13/06/2022, 08:48:57] Shane: ![image](static/WA-elliot/00005775-PHOTO-2022-06-13-08-48-57.jpg)
+‎[13/06/2022, 08:48:57] Shane: 
+
+![image](static/WA-elliot/00005775-PHOTO-2022-06-13-08-48-57.jpg)
 
 [13/06/2022, 08:49:23] Elliot: Lol
 
@@ -32676,7 +33712,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [13/06/2022, 08:52:05] Elliot: It’s box ticking babes, nothing else
 
-‎[13/06/2022, 08:52:36] Elliot: ![image](static/WA-elliot/00005786-PHOTO-2022-06-13-08-52-36.jpg)
+‎[13/06/2022, 08:52:36] Elliot: 
+
+![image](static/WA-elliot/00005786-PHOTO-2022-06-13-08-52-36.jpg)
 
 [13/06/2022, 08:52:52] Shane: Oh that’s it
 
@@ -32756,7 +33794,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [13/06/2022, 09:35:30] Shane: Exactly that’s my point
 
-‎[13/06/2022, 09:35:42] Elliot: ![image](static/WA-elliot/00005826-PHOTO-2022-06-13-09-35-42.jpg)
+‎[13/06/2022, 09:35:42] Elliot: 
+
+![image](static/WA-elliot/00005826-PHOTO-2022-06-13-09-35-42.jpg)
 
 [13/06/2022, 09:36:06] Shane: Curtis via instagram and word of mouth has sent people to that website to give them money when he could do it him self lol
 
@@ -32788,13 +33828,17 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [15/06/2022, 22:35:51] Shane: How’s my friend and his sniffle
 
-‎[15/06/2022, 22:37:15] Elliot: ![image](static/WA-elliot/00005842-STICKER-2022-06-15-22-37-15.webp)
+‎[15/06/2022, 22:37:15] Elliot: 
+
+![image](static/WA-elliot/00005842-STICKER-2022-06-15-22-37-15.webp)
 
 [15/06/2022, 22:37:34] Shane: You got swelling babes
 
 [15/06/2022, 22:37:59] Elliot: Yeah the doctor said it will go down
 
-‎[16/06/2022, 09:43:11] Elliot: ![image](static/WA-elliot/00005845-PHOTO-2022-06-16-09-43-11.jpg)
+‎[16/06/2022, 09:43:11] Elliot: 
+
+![image](static/WA-elliot/00005845-PHOTO-2022-06-16-09-43-11.jpg)
 
 [16/06/2022, 10:45:22] Shane: Me & you
 
@@ -32822,9 +33866,13 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [16/06/2022, 15:53:18] Elliot: Victim to what babes
 
-‎[16/06/2022, 15:53:22] Elliot: ![image](static/WA-elliot/00005859-PHOTO-2022-06-16-15-53-22.jpg)
+‎[16/06/2022, 15:53:22] Elliot: 
 
-‎[16/06/2022, 15:53:45] Elliot: ![image](static/WA-elliot/00005860-PHOTO-2022-06-16-15-53-45.jpg)
+![image](static/WA-elliot/00005859-PHOTO-2022-06-16-15-53-22.jpg)
+
+‎[16/06/2022, 15:53:45] Elliot: 
+
+![image](static/WA-elliot/00005860-PHOTO-2022-06-16-15-53-45.jpg)
 
 [16/06/2022, 15:58:29] Shane: You could have ironed it and I’d appreciate if you did expose your hardon to me I know your excited about roast but I don’t need that in my face disgusting
 
@@ -32852,7 +33900,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [16/06/2022, 23:28:42] Elliot: Negative darling
 
-‎[17/06/2022, 00:03:39] Elliot: ![image](static/WA-elliot/00005874-PHOTO-2022-06-17-00-03-39.jpg)
+‎[17/06/2022, 00:03:39] Elliot: 
+
+![image](static/WA-elliot/00005874-PHOTO-2022-06-17-00-03-39.jpg)
 
 [17/06/2022, 00:04:37] Shane: What the fuck are you doing
 
@@ -32860,7 +33910,9 @@ Website and ticket sites need to be shown and explained babes.. come in any day,
 
 [17/06/2022, 00:06:14] Elliot: He he
 
-‎[17/06/2022, 00:07:13] Elliot: ![image](static/WA-elliot/00005878-STICKER-2022-06-17-00-07-13.webp)
+‎[17/06/2022, 00:07:13] Elliot: 
+
+![image](static/WA-elliot/00005878-STICKER-2022-06-17-00-07-13.webp)
 
 [18/06/2022, 10:27:43] Shane: NOW for 12.31pm yesterday 
 
@@ -32882,7 +33934,9 @@ And NOW FOR RIGHT NOW
 
 [18/06/2022, 17:01:34] Shane: noW
 
-‎[18/06/2022, 17:13:31] Elliot: ![image](static/WA-elliot/00005883-PHOTO-2022-06-18-17-13-31.jpg)
+‎[18/06/2022, 17:13:31] Elliot: 
+
+![image](static/WA-elliot/00005883-PHOTO-2022-06-18-17-13-31.jpg)
 
 [18/06/2022, 17:13:43] Elliot: NOW
 
@@ -32910,7 +33964,9 @@ And NOW FOR RIGHT NOW
 
 [18/06/2022, 17:18:55] Elliot: 🤣🤣🤣🤣🤣
 
-‎[18/06/2022, 17:19:11] Elliot: ![image](static/WA-elliot/00005898-PHOTO-2022-06-18-17-19-11.jpg)
+‎[18/06/2022, 17:19:11] Elliot: 
+
+![image](static/WA-elliot/00005898-PHOTO-2022-06-18-17-19-11.jpg)
 
 [18/06/2022, 17:19:21] Elliot: Send it to Mark Ames NOW
 
@@ -32946,7 +34002,9 @@ And NOW FOR RIGHT NOW
 
 [19/06/2022, 16:12:21] Elliot: Delicious
 
-‎[19/06/2022, 16:12:47] Elliot: ![image](static/WA-elliot/00005916-PHOTO-2022-06-19-16-12-47.jpg)
+‎[19/06/2022, 16:12:47] Elliot: 
+
+![image](static/WA-elliot/00005916-PHOTO-2022-06-19-16-12-47.jpg)
 
 [19/06/2022, 18:09:24] Elliot: N
 
@@ -32986,7 +34044,9 @@ And NOW FOR RIGHT NOW
 
 [19/06/2022, 18:10:56] Shane: What the fuck you doing there
 
-‎[19/06/2022, 18:11:39] Elliot: ![image](static/WA-elliot/00005936-PHOTO-2022-06-19-18-11-39.jpg)
+‎[19/06/2022, 18:11:39] Elliot: 
+
+![image](static/WA-elliot/00005936-PHOTO-2022-06-19-18-11-39.jpg)
 
 [19/06/2022, 18:11:43] Elliot: Dinner babes
 
@@ -33010,13 +34070,19 @@ And NOW FOR RIGHT NOW
 
 [19/06/2022, 20:10:36] Elliot: Oooo you can come to Roast then 🤗👏🏻👏🏻👏🏻👏🏻👍🏻
 
-‎[19/06/2022, 20:10:45] Elliot: ![image](static/WA-elliot/00005948-STICKER-2022-06-19-20-10-45.webp)
+‎[19/06/2022, 20:10:45] Elliot: 
 
-‎[19/06/2022, 20:10:48] Elliot: ![image](static/WA-elliot/00005949-STICKER-2022-06-19-20-10-48.webp)
+![image](static/WA-elliot/00005948-STICKER-2022-06-19-20-10-45.webp)
+
+‎[19/06/2022, 20:10:48] Elliot: 
+
+![image](static/WA-elliot/00005949-STICKER-2022-06-19-20-10-48.webp)
 
 [19/06/2022, 20:10:56] Shane: Hmmmmm
 
-‎[19/06/2022, 20:12:27] Elliot: ![image](static/WA-elliot/00005951-STICKER-2022-06-19-20-12-27.webp)
+‎[19/06/2022, 20:12:27] Elliot: 
+
+![image](static/WA-elliot/00005951-STICKER-2022-06-19-20-12-27.webp)
 
 [19/06/2022, 20:13:40] Shane: Are you working it
 
@@ -33036,13 +34102,19 @@ And NOW FOR RIGHT NOW
 
 [19/06/2022, 21:54:46] Elliot: Jeremy went on holiday, so closed all 3 venues for a week
 
-‎[20/06/2022, 15:08:10] Shane: ![image](static/WA-elliot/00005961-PHOTO-2022-06-20-15-08-10.jpg)
+‎[20/06/2022, 15:08:10] Shane: 
+
+![image](static/WA-elliot/00005961-PHOTO-2022-06-20-15-08-10.jpg)
 
 [20/06/2022, 16:59:02] Elliot: Lol
 
-‎[20/06/2022, 17:02:19] Elliot: ![image](static/WA-elliot/00005963-PHOTO-2022-06-20-17-02-19.jpg)
+‎[20/06/2022, 17:02:19] Elliot: 
 
-‎[20/06/2022, 17:02:25] Elliot: ![image](static/WA-elliot/00005964-PHOTO-2022-06-20-17-02-25.jpg)
+![image](static/WA-elliot/00005963-PHOTO-2022-06-20-17-02-19.jpg)
+
+‎[20/06/2022, 17:02:25] Elliot: 
+
+![image](static/WA-elliot/00005964-PHOTO-2022-06-20-17-02-25.jpg)
 
 [20/06/2022, 17:03:50] Shane: Good job olly doesn’t work there anymore lol
 
@@ -33080,11 +34152,17 @@ And NOW FOR RIGHT NOW
 
 [20/06/2022, 19:25:47] Shane: Oooo I liked them lol
 
-‎[20/06/2022, 19:26:03] Elliot: ![image](static/WA-elliot/00005983-STICKER-2022-06-20-19-26-03.webp)
+‎[20/06/2022, 19:26:03] Elliot: 
 
-‎[20/06/2022, 19:26:09] Elliot: ![image](static/WA-elliot/00005984-PHOTO-2022-06-20-19-26-09.jpg)
+![image](static/WA-elliot/00005983-STICKER-2022-06-20-19-26-03.webp)
 
-‎[20/06/2022, 19:26:09] Elliot: ![image](static/WA-elliot/00005985-PHOTO-2022-06-20-19-26-09.jpg)
+‎[20/06/2022, 19:26:09] Elliot: 
+
+![image](static/WA-elliot/00005984-PHOTO-2022-06-20-19-26-09.jpg)
+
+‎[20/06/2022, 19:26:09] Elliot: 
+
+![image](static/WA-elliot/00005985-PHOTO-2022-06-20-19-26-09.jpg)
 
 [20/06/2022, 19:26:54] Shane: Mum always had them I as a kid I think everyone knows the words
 
@@ -33096,11 +34174,15 @@ And NOW FOR RIGHT NOW
 
 [20/06/2022, 19:28:44] Elliot: Lol haven’t babes
 
-‎[20/06/2022, 23:47:12] Shane: ![image](static/WA-elliot/00005991-PHOTO-2022-06-20-23-47-12.jpg)
+‎[20/06/2022, 23:47:12] Shane: 
+
+![image](static/WA-elliot/00005991-PHOTO-2022-06-20-23-47-12.jpg)
 
 [20/06/2022, 23:47:49] Elliot: Definitely
 
-‎[20/06/2022, 23:47:57] Elliot: ![image](static/WA-elliot/00005993-PHOTO-2022-06-20-23-47-57.jpg)
+‎[20/06/2022, 23:47:57] Elliot: 
+
+![image](static/WA-elliot/00005993-PHOTO-2022-06-20-23-47-57.jpg)
 
 [20/06/2022, 23:49:07] Shane: Is he like Glendora for ROAST
 
@@ -33132,15 +34214,21 @@ And NOW FOR RIGHT NOW
 
 [21/06/2022, 18:14:44] Elliot: Working babes
 
-‎[21/06/2022, 18:14:56] Elliot: ![image](static/WA-elliot/00006009-PHOTO-2022-06-21-18-14-56.jpg)
+‎[21/06/2022, 18:14:56] Elliot: 
+
+![image](static/WA-elliot/00006009-PHOTO-2022-06-21-18-14-56.jpg)
 
 [21/06/2022, 18:15:14] Shane: Hitting the booze
 
 [21/06/2022, 18:20:13] Elliot: Again 😵‍💫
 
-‎[21/06/2022, 21:30:11] Elliot: ![image](static/WA-elliot/00006012-GIF-2022-06-21-21-30-11.mp4)
+‎[21/06/2022, 21:30:11] Elliot: 
 
-‎[21/06/2022, 21:44:41] Shane: ![image](static/WA-elliot/00006013-PHOTO-2022-06-21-21-44-40.jpg)
+![image](static/WA-elliot/00006012-GIF-2022-06-21-21-30-11.mp4)
+
+‎[21/06/2022, 21:44:41] Shane: 
+
+![image](static/WA-elliot/00006013-PHOTO-2022-06-21-21-44-40.jpg)
 
 [21/06/2022, 21:45:03] Elliot: 🤮
 
@@ -33148,9 +34236,13 @@ And NOW FOR RIGHT NOW
 
 [21/06/2022, 21:45:27] Shane: Ha ha
 
-‎[21/06/2022, 21:45:43] Elliot: ![image](static/WA-elliot/00006017-GIF-2022-06-21-21-45-43.mp4)
+‎[21/06/2022, 21:45:43] Elliot: 
 
-‎[21/06/2022, 21:45:57] Shane: ![image](static/WA-elliot/00006018-PHOTO-2022-06-21-21-45-57.jpg)
+![image](static/WA-elliot/00006017-GIF-2022-06-21-21-45-43.mp4)
+
+‎[21/06/2022, 21:45:57] Shane: 
+
+![image](static/WA-elliot/00006018-PHOTO-2022-06-21-21-45-57.jpg)
 
 [21/06/2022, 21:47:23] Elliot: Oooo hello
 
@@ -33158,11 +34250,15 @@ And NOW FOR RIGHT NOW
 
 [21/06/2022, 21:47:33] Shane: Hehe
 
-‎[21/06/2022, 21:47:35] Elliot: ![image](static/WA-elliot/00006022-GIF-2022-06-21-21-47-35.mp4)
+‎[21/06/2022, 21:47:35] Elliot: 
+
+![image](static/WA-elliot/00006022-GIF-2022-06-21-21-47-35.mp4)
 
 [21/06/2022, 21:47:40] Elliot: Eeeeewwwww
 
-‎[22/06/2022, 10:38:02] Elliot: ![image](static/WA-elliot/00006024-GIF-2022-06-22-10-38-02.mp4)
+‎[22/06/2022, 10:38:02] Elliot: 
+
+![image](static/WA-elliot/00006024-GIF-2022-06-22-10-38-02.mp4)
 
 [22/06/2022, 10:38:11] Elliot: Chrissy on the till at roast
 
@@ -33240,7 +34336,9 @@ And NOW FOR RIGHT NOW
 
 [23/06/2022, 13:30:40] Elliot: No babes
 
-‎[23/06/2022, 13:30:50] Elliot: ![image](static/WA-elliot/00006063-PHOTO-2022-06-23-13-30-50.jpg)
+‎[23/06/2022, 13:30:50] Elliot: 
+
+![image](static/WA-elliot/00006063-PHOTO-2022-06-23-13-30-50.jpg)
 
 [23/06/2022, 13:30:57] Shane: Lies lies lies
 
@@ -33332,7 +34430,9 @@ And NOW FOR RIGHT NOW
 
 [25/06/2022, 17:42:31] Elliot: HAZHA
 
-‎[25/06/2022, 17:44:49] Elliot: ![image](static/WA-elliot/00006109-PHOTO-2022-06-25-17-44-49.jpg)
+‎[25/06/2022, 17:44:49] Elliot: 
+
+![image](static/WA-elliot/00006109-PHOTO-2022-06-25-17-44-49.jpg)
 
 [25/06/2022, 18:05:54] Shane: That called Shane?
 
@@ -33384,7 +34484,9 @@ And NOW FOR RIGHT NOW
 
 [28/06/2022, 13:06:16] Elliot: What the fuck  you doing
 
-‎[28/06/2022, 13:06:19] Elliot: ![image](static/WA-elliot/00006135-PHOTO-2022-06-28-13-06-19.jpg)
+‎[28/06/2022, 13:06:19] Elliot: 
+
+![image](static/WA-elliot/00006135-PHOTO-2022-06-28-13-06-19.jpg)
 
 [28/06/2022, 13:07:53] Shane: Why the fuck are you painting and I’m designing a qr code generator bam
 
@@ -33392,11 +34494,17 @@ And NOW FOR RIGHT NOW
 
 [28/06/2022, 13:09:39] Elliot: Oooo QR code
 
-‎[28/06/2022, 13:09:48] Elliot: ![image](static/WA-elliot/00006139-PHOTO-2022-06-28-13-09-48.jpg)
+‎[28/06/2022, 13:09:48] Elliot: 
 
-‎[28/06/2022, 13:10:09] Elliot: ![image](static/WA-elliot/00006140-PHOTO-2022-06-28-13-10-09.jpg)
+![image](static/WA-elliot/00006139-PHOTO-2022-06-28-13-09-48.jpg)
 
-‎[28/06/2022, 13:10:09] Elliot: ![image](static/WA-elliot/00006141-PHOTO-2022-06-28-13-10-09.jpg)
+‎[28/06/2022, 13:10:09] Elliot: 
+
+![image](static/WA-elliot/00006140-PHOTO-2022-06-28-13-10-09.jpg)
+
+‎[28/06/2022, 13:10:09] Elliot: 
+
+![image](static/WA-elliot/00006141-PHOTO-2022-06-28-13-10-09.jpg)
 
 [28/06/2022, 13:24:52] Shane: Omg stop it lol
 
@@ -33418,13 +34526,17 @@ And NOW FOR RIGHT NOW
 
 [29/06/2022, 20:00:09] Elliot: Hi ya
 
-‎[29/06/2022, 20:00:15] Elliot: ![image](static/WA-elliot/00006152-PHOTO-2022-06-29-20-00-15.jpg)
+‎[29/06/2022, 20:00:15] Elliot: 
+
+![image](static/WA-elliot/00006152-PHOTO-2022-06-29-20-00-15.jpg)
 
 [29/06/2022, 20:29:53] Shane: CAMP
 
 [29/06/2022, 20:30:15] Elliot: Just found out it’s up against this….
 
-‎[29/06/2022, 20:30:17] Elliot: ![image](static/WA-elliot/00006155-PHOTO-2022-06-29-20-30-17.jpg)
+‎[29/06/2022, 20:30:17] Elliot: 
+
+![image](static/WA-elliot/00006155-PHOTO-2022-06-29-20-30-17.jpg)
 
 [29/06/2022, 20:30:29] Elliot: Fire are so going to hate us ha ha ha
 
@@ -33468,7 +34580,9 @@ What’s he done ?
 
 [30/06/2022, 23:22:51] Shane: Uncalled for lol
 
-‎[30/06/2022, 23:22:59] Elliot: ![image](static/WA-elliot/00006176-STICKER-2022-06-30-23-22-59.webp)
+‎[30/06/2022, 23:22:59] Elliot: 
+
+![image](static/WA-elliot/00006176-STICKER-2022-06-30-23-22-59.webp)
 
 [01/07/2022, 12:10:26] Shane: NOW
 
@@ -33684,7 +34798,9 @@ No, we walked in and out of SoHo in 15 minutes then came home
 
 [11/07/2022, 14:22:22] Elliot: lol
 
-‎[11/07/2022, 14:23:26] Elliot: ![image](static/WA-elliot/00006283-PHOTO-2022-07-11-14-23-26.jpg)
+‎[11/07/2022, 14:23:26] Elliot: 
+
+![image](static/WA-elliot/00006283-PHOTO-2022-07-11-14-23-26.jpg)
 
 [11/07/2022, 20:47:11] Shane: Img
 
@@ -33786,7 +34902,9 @@ Spencer
 
 [14/07/2022, 19:06:40] Elliot: Who let him out
 
-‎[14/07/2022, 19:06:53] Elliot: ![image](static/WA-elliot/00006329-PHOTO-2022-07-14-19-06-53.jpg)
+‎[14/07/2022, 19:06:53] Elliot: 
+
+![image](static/WA-elliot/00006329-PHOTO-2022-07-14-19-06-53.jpg)
 
 [14/07/2022, 19:07:06] Shane: The doctors he didn’t need to stay there
 
@@ -33816,7 +34934,9 @@ You bitch
 
 [14/07/2022, 23:05:29] Shane: Il be hung over fro tomorrow anyway
 
-‎[14/07/2022, 23:05:43] Elliot: ![image](static/WA-elliot/00006342-PHOTO-2022-07-14-23-05-43.jpg)
+‎[14/07/2022, 23:05:43] Elliot: 
+
+![image](static/WA-elliot/00006342-PHOTO-2022-07-14-23-05-43.jpg)
 
 [14/07/2022, 23:05:51] Elliot: Eeewwww
 
@@ -33906,7 +35026,9 @@ You bitch
 
 [20/07/2022, 19:46:34] Shane: No
 
-‎[20/07/2022, 19:47:11] Elliot: ![image](static/WA-elliot/00006396-PHOTO-2022-07-20-19-47-11.jpg)
+‎[20/07/2022, 19:47:11] Elliot: 
+
+![image](static/WA-elliot/00006396-PHOTO-2022-07-20-19-47-11.jpg)
 
 [20/07/2022, 19:48:26] Elliot: Why would he dislike you ? Helping you when you needed it etc… he’s always loved you especially when you stop him from getting mugged in Vauxhall. 
 
@@ -33978,7 +35100,9 @@ You really are reading the wrong book babes
 
 [20/07/2022, 20:10:58] Shane: Had time to go house of trash oooo
 
-‎[20/07/2022, 20:12:51] Elliot: ![image](static/WA-elliot/00006432-PHOTO-2022-07-20-20-12-51.jpg)
+‎[20/07/2022, 20:12:51] Elliot: 
+
+![image](static/WA-elliot/00006432-PHOTO-2022-07-20-20-12-51.jpg)
 
 [20/07/2022, 20:13:08] Elliot: Errrr 🤔🫣
 
@@ -34000,7 +35124,9 @@ You really are reading the wrong book babes
 
 Shordicth
 
-‎[20/07/2022, 20:14:34] Elliot: ![image](static/WA-elliot/00006442-PHOTO-2022-07-20-20-14-34.jpg)
+‎[20/07/2022, 20:14:34] Elliot: 
+
+![image](static/WA-elliot/00006442-PHOTO-2022-07-20-20-14-34.jpg)
 
 [20/07/2022, 20:14:41] Shane: You did not invite me
 
@@ -34008,7 +35134,9 @@ Shordicth
 
 [20/07/2022, 20:15:17] Elliot: No, wasn’t our party to invite anyone babes
 
-‎[20/07/2022, 20:16:02] Elliot: ![image](static/WA-elliot/00006446-PHOTO-2022-07-20-20-16-02.jpg)
+‎[20/07/2022, 20:16:02] Elliot: 
+
+![image](static/WA-elliot/00006446-PHOTO-2022-07-20-20-16-02.jpg)
 
 [20/07/2022, 20:16:41] Shane: You didn’t not invite me to that or trough you didn’t even mention price to me at all. No good inviting me now I’ve explained how I feel looks a bit strange to me
 
@@ -34112,7 +35240,9 @@ Who knew about that
 
 [20/07/2022, 20:39:42] Elliot: Omg
 
-‎[20/07/2022, 20:40:47] Elliot: ![image](static/WA-elliot/00006497-PHOTO-2022-07-20-20-40-47.jpg)
+‎[20/07/2022, 20:40:47] Elliot: 
+
+![image](static/WA-elliot/00006497-PHOTO-2022-07-20-20-40-47.jpg)
 
 [20/07/2022, 20:41:07] Shane: Yeah keep on
 
